@@ -3,8 +3,9 @@
 
 ## Саморазвитие
 1. [The 2 Minute Rule Will Quickly Change Your Life – James Clear | FightMediocrity](https://www.youtube.com/watch?v=HM7dgEF8H60)
-2. 
+2. [Работай 1 минуту после пробуждения [Исследование]: | АРСЕНИЙ СЛОН](https://www.youtube.com/watch?v=kP08Qa7JJHM)
 3. 
+4. 
 
 ## Рецепты
 ### Голодный Мужчина
@@ -34,7 +35,21 @@
 4. [ПРОКАЧАТЬ ПЛЕЧИ ЗА 4 МИНУТЫ !! БЕЗ ЖЕЛЕЗА](https://www.youtube.com/watch?v=gD4Ni79kRpY)
 5. [3 СПОСОБА УБРАТЬ ЖИВОТ И ПОХУДЕТЬ В ДОМАШНИХ УСЛОВИЯХ (ЭТО РЕАЛЬНО СРАБОТАЕТ !!)](https://www.youtube.com/watch?v=mYCorC93MpM)
 6. [Прокачать ГРУДЬ в ДОМАШНИХ УСЛОВИЯХ (Тренировка Без Оборудования)](https://www.youtube.com/watch?v=vBaI17vs3M4)
-7. 
+
+### Тренер Артём
+1. [Не ешь сникерс, ешь нормально](https://www.youtube.com/watch?v=pohectQqUR8)
+2. [Что будет, если не есть сахар 7 дней?😅](https://www.youtube.com/watch?v=MEz2mTLj51A)
+3. [Нет времени на тренировки? Тренируйтесь так](https://www.youtube.com/watch?v=UbaJ7ZCuP6k)
+4. [Самая большая ошибка худеющих](https://www.youtube.com/watch?v=9aP3NaMsZFk)
+5. [Накачаться с весом тела...Возможно?](https://www.youtube.com/watch?v=XTQkO7bjVVM)
+6. 
+
+### Denis Semenikhin
+1. [О важности фонового кардио! #продлениежизни](https://www.youtube.com/watch?v=1y_vYfyFkLs)
+2. 
+
+### Другие
+1. [5 ПРИВЫЧЕК, которые УБИВАЮТ ТВОЮ ПОДЖЕЛУДОЧНУЮ железу || #чжудши #тибетскаямедицина #тибет | Доктор Жимба (Чжуд-Ши клиника)](https://www.youtube.com/watch?v=04Y9sYOPeGY)
 
 ## Вождение
 1. 
