@@ -2,7 +2,7 @@
 Описываю, что в видео было полезного и интересного
 
 ## Саморазвитие
-1. 
+1. [The 2 Minute Rule Will Quickly Change Your Life – James Clear | FightMediocrity](https://www.youtube.com/watch?v=HM7dgEF8H60)
 2. 
 3. 
 
