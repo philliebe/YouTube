@@ -4,8 +4,16 @@
 ## Саморазвитие
 1. [The 2 Minute Rule Will Quickly Change Your Life – James Clear | FightMediocrity](https://www.youtube.com/watch?v=HM7dgEF8H60)
 2. [Работай 1 минуту после пробуждения [Исследование]: | АРСЕНИЙ СЛОН](https://www.youtube.com/watch?v=kP08Qa7JJHM)
-3. 
-4. 
+3. [Как увеличить количество счастья. Академик Амосов. Если хочешь быть здоров. Передача 1 | Советское телевидение. ГОСТЕЛЕРАДИОФОНД](https://www.youtube.com/watch?v=e8A7TMbktvA)
+4. [a piece of advice for every guy in his 20's | realtalk](https://www.youtube.com/watch?v=VjN7V7R5U7o)
+5. [отрывок который изменил меня навсегда.. | ДОБРЯК](https://www.youtube.com/watch?v=I6oraJziqE4)
+6. [Я всю жизнь избегал конфликтов. А потом пошёл на бокс | ПолуБокс](https://www.youtube.com/watch?v=qbX5pyQD3gM)
+7. [Ты сидишь дома не потому, что некуда. А потому, что незачем | Психолог Иван Лежняков](https://www.youtube.com/watch?v=TyIL649AQ3w)
+8. [Секс в браке невозможен? Наталья Фомичева. | Наука с Александром Соколовским](https://www.youtube.com/watch?v=DtOw-59AfzI)
+9. [Вы пьете кофе НЕправильно? Сергей Вялов. | Наука с Александром Соколовским](https://www.youtube.com/watch?v=kSRctVV_aho)
+10. [Свобода быть одному: удобство, за которое мы дорого платим | Т—Ж](https://www.youtube.com/watch?v=xgxkmYNkLXM)
+11. [Изменись за 1 месяц / Стань тем, кого хотят женщины, не изменяя себе | Темная комната](https://www.youtube.com/watch?v=SZ_MGAC9N-Q)
+12. 
 
 ## Рецепты
 ### Голодный Мужчина
@@ -23,9 +31,15 @@
 12. [ГОРЯЧИЙ ШОКОЛАД без шоколада / Как сделать густой горячий шоколад дома рецепт — Голодный Мужчина 321](https://www.youtube.com/watch?v=OObge5hfOUc)
 13. 
 
+### oblomoff
+1. [Вкуснейшая картошка с грибами #shorts](https://www.youtube.com/watch?v=WiS2xYKffTI)
+2. [](url)
+
 ### Другие
 1. [Этот рецепт от бабушки всех ошеломил! Легкий сытный ужин! | Essen Rezepte](https://www.youtube.com/watch?v=UBpYZcUwqdk)
-2. 
+2. [Любимая еда моего мужа! Быстрый и легкий рецепт на ужин из куриной грудки | LanaAppetitovna](https://www.youtube.com/watch?v=OjdZb6VBb9o)
+3. [Рис с яйцами лучше пиццы! Готовлю его почти каждый день! | Просто и вкусно](https://www.youtube.com/watch?v=tNlLMO-9JOY)
+4. [](url)
 
 ## Здоровье
 ### Дикий Лось
@@ -42,7 +56,8 @@
 3. [Нет времени на тренировки? Тренируйтесь так](https://www.youtube.com/watch?v=UbaJ7ZCuP6k)
 4. [Самая большая ошибка худеющих](https://www.youtube.com/watch?v=9aP3NaMsZFk)
 5. [Накачаться с весом тела...Возможно?](https://www.youtube.com/watch?v=XTQkO7bjVVM)
-6. 
+6. [Для хороших результатов много не надо. Научные данные](https://www.youtube.com/watch?v=ycTenChxEME)
+7. [](url)
 
 ### Denis Semenikhin
 1. [О важности фонового кардио! #продлениежизни](https://www.youtube.com/watch?v=1y_vYfyFkLs)
@@ -50,6 +65,10 @@
 
 ### Другие
 1. [5 ПРИВЫЧЕК, которые УБИВАЮТ ТВОЮ ПОДЖЕЛУДОЧНУЮ железу || #чжудши #тибетскаямедицина #тибет | Доктор Жимба (Чжуд-Ши клиника)](https://www.youtube.com/watch?v=04Y9sYOPeGY)
+2. [RUSSIAN SYSTEMA SPETSNAZ TRAINING - How to Develop Powerful Strikes and Punches | Systema Spetsnaz](https://www.youtube.com/watch?v=C-f_OXOd1CI)
+3. [Как начать заниматься калистеникой в ​​2026 году (лучшее руководство для начинающих) | Мистер Фитнес](https://www.youtube.com/watch?v=yxkta_006dw)
+4. [ХОЧЕШЬ ПОДТЯГИВАТЬСЯ БОЛЬШЕ? ЭТА СХЕМА ДЛЯ ТЕБЯ 🔥 Подтягивания + фиксация в верхней точке | Всеволод Фиалковский](https://www.youtube.com/watch?v=uBP39Hh2gbI)
+5. 
 
 ## Вождение
 1. 
