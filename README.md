@@ -69,7 +69,7 @@
 
 ### Denis Semenikhin
 1. [О важности фонового кардио! #продлениежизни](https://www.youtube.com/watch?v=1y_vYfyFkLs)
-2. 
+2. [Мой оптимальный режим. Как уделять минимум времени тренировкам с максимальным эффектом.](https://www.youtube.com/watch?v=ieYYyvHQLW8)
 
 ### Другие
 1. [5 ПРИВЫЧЕК, которые УБИВАЮТ ТВОЮ ПОДЖЕЛУДОЧНУЮ железу || #чжудши #тибетскаямедицина #тибет | Доктор Жимба (Чжуд-Ши клиника)](https://www.youtube.com/watch?v=04Y9sYOPeGY)
@@ -121,12 +121,14 @@
 1. [Volvo XC70 ( 2001 - 2007г.) | Стоимость обслуживания двигателя!](https://www.youtube.com/watch?v=jcczPpMQyyo)
 
 ### Другие
-1. 
+1. [The XC70 is the ultimate Volvo Estate (Station Wagon) | JJ on Cars](https://www.youtube.com/watch?v=-aiqcTpHmgQ)
+2. 
 
 ## Финансы
 1. [Думаете, что покупаете БЕСПЛАТНО? Как на самом деле работает оплата частями (Сплит, Подели, Долями) | Т—Ж](https://www.youtube.com/watch?v=UmpbpacQ2ho)
 2. [80133р за МЕСЯЦ. Пассивный ДОХОД 2026. Без курсов и инфоцыган. Финансовая грамотность | Коротко и внятно](https://www.youtube.com/watch?v=Msm5NbBz5ts)
-3. 
+3. [Как кредиты стали нормой | Т—Ж](https://www.youtube.com/watch?v=MFEUEOf5rBY)
+4. 
 
 ## Путешествия
 1. [Сколько же это стоило? Ответы на вопросы о поездке на Байкал. | Дачный Бич](https://www.youtube.com/watch?v=v76o0tcwLvs)
@@ -135,29 +137,42 @@
 4. 
 
 ## Разное
+### Про авто
+1. [«Буханке» за 1,6 млн рублей. Продавец попросил не смеяться, ведь «Буханку» собирают по технологии | Китайский -Машина](https://www.youtube.com/watch?v=uivzmtMt9as)
+2. [Дань уважения VOLVO 850 | VOLLUX /// Автосервис автомобилей VOLVO & GEELY](https://www.youtube.com/watch?v=K962KArTJqQ)
+3. [ЖЕСКИЕ ШАШКИ НА ГЕЛИКЕ / MERC G63 ПО МОСКВЕ | Антагонист](https://www.youtube.com/watch?v=LslIYjzSPIc)
+4. 
+
+### Про самолёты
+1. [ПО 2 Самолет-легенда. Обзор и рассказ пилота | Авиапарк Орешково](https://www.youtube.com/watch?v=RTshwW8a6m4)
+2. [ИЛ 2. Легендарная боевая машина в Авиапарке Орешково | Авиапарк Орешково](https://www.youtube.com/watch?v=5KNwQWDp3fs)
+3. [Volonaut Airbike - Test Riding a Flying Speeder Bike | Volonaut](https://www.youtube.com/watch?v=XZpWTHtwceE)
+4. 
+
+### Остальное
 1. [[GoodComedian] - НОВОГОДНИЕ ФИЛЬМЫ (5 фильмов под ёлку) | EvgenComedian](https://www.youtube.com/watch?v=zsuLUjvVR7k)
-2. [Volonaut Airbike - Test Riding a Flying Speeder Bike | Volonaut](https://www.youtube.com/watch?v=XZpWTHtwceE)
-3. [«Буханке» за 1,6 млн рублей. Продавец попросил не смеяться, ведь «Буханку» собирают по технологии | Китайский -Машина](https://www.youtube.com/watch?v=uivzmtMt9as)
+2. 
+3. 
 4. [Цейтнот, 1985 | Alexandr Zudin](https://www.youtube.com/watch?v=6jlZ8B3hyQM)
 5. [Зачем раньше у Русских Изб делали Завалинку? | Pribambas TV](https://www.youtube.com/watch?v=KYrVmErasUY)
 6. [Bombshell Only Knows One Man's Meat? | DripNShoot](https://www.youtube.com/watch?v=yoPatjg58U8)
 7. [В Этуш о войне | Вадим Тычоблин](https://www.youtube.com/watch?v=_yzp9N3JNas)
 8. [Ошибки при выборе опасной бритвы: на что смотреть? | Поручиков Дмитрий Опасная Бритва](https://www.youtube.com/watch?v=56OJhgmFg1E)
-9. [The XC70 is the ultimate Volvo Estate (Station Wagon) | JJ on Cars](https://www.youtube.com/watch?v=-aiqcTpHmgQ)
+9. 
 10. [Зачем Сталин забрал у Германии Кёнигсберг и что стало с местными немцами? | Русский Ежедневник](https://www.youtube.com/watch?v=LKUtyus29Dc)
 11. [Все делают вид, что работают? Что не так с офисами в 2025 году | Т—Ж](https://www.youtube.com/watch?v=4q-g-BKD5ik)
-12. [Как кредиты стали нормой | Т—Ж](https://www.youtube.com/watch?v=MFEUEOf5rBY)
+12. 
 13. [Усталость как новая норма: выгорание, работа и жизнь на износ | Т—Ж](https://www.youtube.com/watch?v=_WWmxLyE0Hc)
 14. [Главные битвы Великой Отечественной войны за 7 минут | Минутная История](https://www.youtube.com/watch?v=nflqWU43TEk)
-15. [ПО 2 Самолет-легенда. Обзор и рассказ пилота | Авиапарк Орешково](https://www.youtube.com/watch?v=RTshwW8a6m4)
-16. [ИЛ 2. Легендарная боевая машина в Авиапарке Орешково | Авиапарк Орешково](https://www.youtube.com/watch?v=5KNwQWDp3fs)
+15. 
+16. 
 17. [Почему в 2026 году невозможно найти работу мечты | Т—Ж](https://www.youtube.com/watch?v=LAJVWBVwca0)
 18. [В Чем Главная Слабость Японских Солдат? | Diodand](https://www.youtube.com/watch?v=ztLDxSYH11A)
 19. ["Украина — нейтральное государство": Путин рассказал в интервью о целях СВО и причинах его начала | Сила Слова](https://www.youtube.com/watch?v=VQH8tDP007Q)
 20. [Введение погон в Красной Армии | Канал Правда Жизни](https://www.youtube.com/watch?v=A5oq1fdQ6pg)
-21. [Дань уважения VOLVO 850 | VOLLUX /// Автосервис автомобилей VOLVO & GEELY](https://www.youtube.com/watch?v=K962KArTJqQ)
+21. 
 22. [УДИВИТЕЛЬНЫЙ УРУГВАЙ. СТРАНА, О КОТОРОЙ НИКТО НЕ ЗНАЕТ! | Агент24х7](https://www.youtube.com/watch?v=gYAvkv7gwAU)
-23. [ЖЕСКИЕ ШАШКИ НА ГЕЛИКЕ / MERC G63 ПО МОСКВЕ | Антагонист](https://www.youtube.com/watch?v=LslIYjzSPIc)
+23. 
 24. 
 
 
@@ -167,7 +182,7 @@
 2. [Как просто ПРЕВЗОЙТИ всех (самый легкий путь) | Sunnat Shukhratov](https://www.youtube.com/watch?v=-uinOUDYjl4)
 3. [Сценарии конца света. От чего погибнет человечество - Сергей Тармашев | Миры и войны Сергея Тармашева](https://www.youtube.com/watch?v=lVnX3zwZ8Ug)
 4. [Презентация книги "Ареал. Что Посеешь" - Сергей Тармашев - 17.12.2016 | Миры и войны Сергея Тармашева](https://www.youtube.com/watch?v=v5qXNfa3m54)
-5. [Мой оптимальный режим. Как уделять минимум времени тренировкам с максимальным эффектом. | Denis Semenikhin](https://www.youtube.com/watch?v=ieYYyvHQLW8)
+5. 
 6. [Готовлю два раза в день. Ужин за 100 рублей. Секрет в банке | Шеф-повар Василий Емельяненко](https://www.youtube.com/watch?v=bAUSqijoEag)
 8. [[Эксклюзив]Реклама Лада Нива 4х4 в Боливии, дубляж на русском языке | 4x4 NIVA-TV](https://www.youtube.com/watch?v=gSmUSCZAkhk)
 9. [ТАКСИ 1? ФРАНЦУЖЕНКА ВСЁ ОБЪЯСНИТ! | Леа Камомий](https://www.youtube.com/watch?v=UwZJ6iyGdxk)
