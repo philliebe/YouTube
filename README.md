@@ -13,15 +13,15 @@
 8. [Секс в браке невозможен? Наталья Фомичева. | Наука с Александром Соколовским](https://www.youtube.com/watch?v=DtOw-59AfzI)
 9. [Вы пьете кофе НЕправильно? Сергей Вялов. | Наука с Александром Соколовским](https://www.youtube.com/watch?v=kSRctVV_aho)
 10. [Свобода быть одному: удобство, за которое мы дорого платим | Т—Ж](https://www.youtube.com/watch?v=xgxkmYNkLXM)
-11. 
+11. [Мне 39. И вот что я понял слишком поздно | Папа в Эмиграции - Мужчина Между Мирами и Lost in Budapest](https://www.youtube.com/watch?v=AFjzlHCG4kI)
 12. [Как справляться с неудачами - история Квентина Тарантино | Роберт Родригес | Лекс Фридман на Русском](https://www.youtube.com/watch?v=2-PyCYiz3lk)
 13. [ИГОРЬ ВОЙТЕНКО НАУЧИТ ТЕБЯ ЖИЗНИ | RYTP | Лох тв...](https://www.youtube.com/watch?v=0VfqXP23mlk)
 14. [Психология Людей которые Не Отмечают Свой День Рождения | Выход из Тьмы ](https://www.youtube.com/watch?v=OnXOAgwaAao)
 15. [Ловушка коротких видео. Как вы отдаете самое ценное | Простая экономика](https://www.youtube.com/watch?v=yQebXIkBAws)
-16. 
-17. [Медленная жизнь эффективнее суетной жизни (развитие темы медленного движения) | психолог Сергей Кравченко](https://www.youtube.com/watch?v=rCjF8Bdj0AA)
-92. 
-93. 
+16. [Как ПРАВИЛЬНО точить ножи. Северная Осетия. | Алексей Усов](https://www.youtube.com/watch?v=MGEpbvqP9nE)
+17. [Fall Asleep in 3-4 Minutes...Sounds Like a Dream! Dr. Mandell | motivationaldoc](https://www.youtube.com/watch?v=tvNARxpNDrA)
+18. [Медленная жизнь эффективнее суетной жизни (развитие темы медленного движения) | психолог Сергей Кравченко](https://www.youtube.com/watch?v=rCjF8Bdj0AA)
+19. 
 
 ### Denis Semenikhin
 1. [Мой распорядок дня. Утренняя активность, выработка привычки.](https://www.youtube.com/watch?v=T08FtgSRhLU)
@@ -47,6 +47,8 @@
 
 ### Темная комната
 1. [Изменись за 1 месяц / Стань тем, кого хотят женщины, не изменяя себе](https://www.youtube.com/watch?v=SZ_MGAC9N-Q)
+2. [Мужчины, прекратите делать ЭТО! 10 Ошибок, о которых молчат](https://www.youtube.com/watch?v=I_V88mcPGKA)
+3. 
 
 
 ## Музыка
@@ -59,7 +61,8 @@
 7. [Luciano Pavarotti - Ave Maria (Schubert) | Warner Classics](https://www.youtube.com/watch?v=XpYGgtrMTYs)
 8. [BoyWithUke - Long Drives (Official Music Video) | BoyWithUke](https://www.youtube.com/watch?v=FIILsSmS_nA)
 9. [Claire Laffut - Vérité | Claire Laffut](https://www.youtube.com/watch?v=tQ3HWIsZXPM)
-10. 
+10. [Светлана ФЕОДУЛОВА - Ария Плавы Лагуны из к/ф "Пятый Элемент" | ALEXANDER LYUTINSKIY VIDEO](https://www.youtube.com/watch?v=cUck0Lxq9EA)
+11. 
 
 
 ## Голос
@@ -119,7 +122,7 @@
 3. [Погружения в ледяную воду. Как не напрягаться и получать пользу и кайф. Метод дыхания Вима Хофа.](https://www.youtube.com/watch?v=oH71aiHCk3I)
 4. [Нужно ли тяжело работать // Cуперсерия Арнольда и Франко для грудных мышц.](https://www.youtube.com/watch?v=792uiEKZHAw)
 5. [Как получить максимальный эффект от тренировки за кратчайшее время. Три варианта тренировки.](https://www.youtube.com/watch?v=DIVKeuN6sqw)
-6.  
+6. 
 
 ### Другие
 1. [5 ПРИВЫЧЕК, которые УБИВАЮТ ТВОЮ ПОДЖЕЛУДОЧНУЮ железу || #чжудши #тибетскаямедицина #тибет | Доктор Жимба (Чжуд-Ши клиника)](https://www.youtube.com/watch?v=04Y9sYOPeGY)
@@ -129,20 +132,34 @@
 5. [This Soviet Workout Builds UNREAL Muscle | Evolve & Build](https://www.youtube.com/watch?v=sPQL7x_I9Bw)
 6. [Один раз сделал и сутулиться не смог никогда после этого. Правильная осанка за 5 минут на всю жизнь | Антон Алексеев](https://www.youtube.com/watch?v=hm-vYGXx3Aw)
 7. [НАЧИНАЙ УТРО С ЭТОГО!!! | Ivan Krasavin](https://www.youtube.com/watch?v=JJYZd6IabFs)
-8. 
+8. [Drain Sinus & Clear Stuffy Nose in 1 Move | Created by Dr. Mandell | motivationaldoc](https://www.youtube.com/watch?v=I47xi2F3W9g)
+9. [5 Привычек с вечера, которые ЗАСТАВЯТ ПОХУДЕТЬ! Знает лишь 1% | Максим Кузнецов](https://www.youtube.com/watch?v=MIw3gYiQsXI)
+10. 
 
 
 ## Вождение
 1. [Какой момент за рулём бесит больше всего? | 알룔료](https://www.youtube.com/watch?v=gHX9o0x1Bs8)
 2. [Как трогаться на механике обучение за 2 минуты! Легко и быстро | Алексей Здравый](https://www.youtube.com/watch?v=xbkbcPtKu_8)
 3. [Немного водительской мудрости. Главное правило водителя. | Quiring](https://www.youtube.com/watch?v=maNVVaxCs-A)
-4. 
+4. [Как работает АКПП? Всё, что ты боялся спросить про автомат | Дин](https://www.youtube.com/watch?v=GaMSNstilqs)
+5. [Как не убиться при обгоне? Типичные ошибки в повороте | Владимир Мельников](https://www.youtube.com/watch?v=8RWrmwjxeXM)
+6. [Как не убиться при обгоне? Ловушка полного привода | Владимир Мельников](https://www.youtube.com/watch?v=j3wWZipDRVo)
+7. 
+
 
 
 ## История
 1. [Клим Жуков. Спецоперация в Ливонии 1558-1583: невыученный урок истории | Клим Жуков](https://www.youtube.com/watch?v=0j5hx3GQJbM)
 2. [Шумеры: история первой цивилизации за 20 минут | Охта Студия](https://www.youtube.com/watch?v=UydIPVDlZIY)
-3. 
+3. [Как В СССР Оценили Армию Германии 1932 Года? Отчёт Начальника Управления РККА | Diodand](https://www.youtube.com/watch?v=j89DNf4Rnfw)
+4. [Мемуары Пилота Гитлера О Поездке В Москву В 1939 Году. Аудиокнига | Diodand](https://www.youtube.com/watch?v=smyYVPqHypQ)
+5. [Американские оружейные ужасы: Распил, смерть от своего оружия и судебные тяжбы | Военный эксперт](https://www.youtube.com/watch?v=XbqsIrlROAM)
+6. [Что Рассказал Немецкий Разведчик Про СССР 1937 Года? Аудиокнига | Diodand](https://www.youtube.com/watch?v=xmwuK2WtneM)
+7. [План нападения Германии на СССР. Разбор | Battle Map — история войн и сражений](https://www.youtube.com/watch?v=2mtMYwcrqnM)
+8. [Заброшенная технология из СССР: старая или опередила эпоху? | Летучий Оконщик](https://www.youtube.com/watch?v=1_ZT2WNgTHk)
+9. [Что значат названия: Саратов, Казань, Челябинск, Барнаул | TABULA RASA](https://www.youtube.com/watch?v=-OI3ISEtsd0)
+10. 
+
 
 
 ## Английский
@@ -177,7 +194,8 @@
 
 ### Другие
 1. [The XC70 is the ultimate Volvo Estate (Station Wagon) | JJ on Cars](https://www.youtube.com/watch?v=-aiqcTpHmgQ)
-2. 
+2. [КУПИЛ ЛУЧШУЮ МАШИНУ ДО МИЛЛИОНА РУБЛЕЙ! ВО СКОЛЬКО ОБОЙДЁТСЯ ПРИВЕСТИ В ПОРЯДОК? | LEGORAGE](https://www.youtube.com/watch?v=as7MrsYBTCI)
+3. 
 
 
 ## Финансы
@@ -200,6 +218,17 @@
 2. 
 
 
+## Книги
+1. [Презентация книги "Ареал. Что Посеешь" - Сергей Тармашев - 17.12.2016 | Миры и войны Сергея Тармашева](https://www.youtube.com/watch?v=v5qXNfa3m54)
+2. 
+
+
+## Еда
+1. [Olive Wagyu in Japan - The rarest Steak in the World | Aden Films](https://www.youtube.com/watch?v=MURPf_6r8z4)
+2. [При Сталине в СССР были гамбургеры. Куда они пропали?| ‪@plenka_story‬ | Стас Бендиченко | Плёнка](https://www.youtube.com/watch?v=LcNC5to6Vww)
+3. 
+
+
 ## Разное
 ### Про авто
 1. [«Буханке» за 1,6 млн рублей. Продавец попросил не смеяться, ведь «Буханку» собирают по технологии | Китайский -Машина](https://www.youtube.com/watch?v=uivzmtMt9as)
@@ -207,7 +236,14 @@
 3. [ЖЕСКИЕ ШАШКИ НА ГЕЛИКЕ / MERC G63 ПО МОСКВЕ | Антагонист](https://www.youtube.com/watch?v=LslIYjzSPIc)
 4. [[Эксклюзив]Реклама Лада Нива 4х4 в Боливии, дубляж на русском языке | 4x4 NIVA-TV](https://www.youtube.com/watch?v=gSmUSCZAkhk)
 5. [История одной НИВЫ. Рассказ ДЕВУШКИ о её машине. | Дачный Бич](https://www.youtube.com/watch?v=kgKd866nCvU)
-6. 
+6. [ОН ЛУЧШИЙ / Daewoo Matiz / ENG YAXSHI / Иван Зенкевич | Иван Зенкевич PRO автомобили](https://www.youtube.com/watch?v=IOzJEZIrb-o)
+7. [Volvo V70 XC / XC70. Вот почему первый XC стал объектом Культа. | LiveBrother](https://www.youtube.com/watch?v=_5RYPyY3hnQ)
+8. [Наша Volvo XC70. ПОДРОБНЫЙ тест и отзыв владельца. Сколько стоил ремонт? | АвтоПрактика](https://www.youtube.com/watch?v=lcoYiMKANlM)
+9. [VOLVO V70 | 8 скрытых функций, о которых вы не знали | Jinzel](https://www.youtube.com/watch?v=CABjmer6KsQ)
+10. [Главный обман века! / Почему все массово пересели на SUV? | Почему купил Виталя](https://www.youtube.com/watch?v=bbpV1DF9Olk)
+11. [Поездка в Тулу на бежевой восьмёрке. Малярные работы у тульских мастеров. | ОРБИТА СПУТНИКА](https://www.youtube.com/watch?v=6v_Ws8M7eHE)
+12. 
+
 
 #### Асафьев Стас
 1. [ПРЕСТУПЛЕНИЕ, которое ПОТРЯСЛО автомобильный МИР](https://www.youtube.com/watch?v=7N0C8jH-utE)
@@ -215,6 +251,7 @@
 3. [Все, что вы СТЕСНЯЛИСЬ спросить про АВТОМОБИЛИ](https://www.youtube.com/watch?v=35-8p3Jy9EE)
 4. [Как появились ГИГАНТЫ ФРАНЦИИ. Противостояние Титанов](https://www.youtube.com/watch?v=Kji4PvHwYso)
 5. [Вот ВО ЧТО ПРЕВРАЩАЮТСЯ КИТАЙЦЫ с пробегом. Обзор Б/У Chery Tiggo 7 Pro.](https://www.youtube.com/watch?v=6uvwMZ6LrMk)
+6. 
 
 ### Про самолёты
 1. [ПО 2 Самолет-легенда. Обзор и рассказ пилота | Авиапарк Орешково](https://www.youtube.com/watch?v=RTshwW8a6m4)
@@ -254,7 +291,7 @@
    - Что интересного в видео
 2. [Как просто ПРЕВЗОЙТИ всех (самый легкий путь) | Sunnat Shukhratov](https://www.youtube.com/watch?v=-uinOUDYjl4)
 3. [Сценарии конца света. От чего погибнет человечество - Сергей Тармашев | Миры и войны Сергея Тармашева](https://www.youtube.com/watch?v=lVnX3zwZ8Ug)
-4. [Презентация книги "Ареал. Что Посеешь" - Сергей Тармашев - 17.12.2016 | Миры и войны Сергея Тармашева](https://www.youtube.com/watch?v=v5qXNfa3m54)
+4. 
 5. 
 6. [Готовлю два раза в день. Ужин за 100 рублей. Секрет в банке | Шеф-повар Василий Емельяненко](https://www.youtube.com/watch?v=bAUSqijoEag)
 8. 
@@ -699,31 +736,4 @@
 486. [Быстрая эякуляция / Как понять, почему это происходит и что с этим делать | Темная комната](https://www.youtube.com/watch?v=cy-KY0A5WAI)
 487. [Немецкий Офицер Рассказывает О Жизни В "Элитном" Лагере СССР. Часть 1 | Diodand](https://www.youtube.com/watch?v=S16cKuNDLak)
 488. [Почему у АВТОВАЗА - НЕТ своей АКПП - ВАРИАТОРА или РОБОТА: хотя ПОПЫТКИ БЫЛИ! | Avto-Blogger.ru](https://www.youtube.com/watch?v=76hnzadIIHo)
-489. [90 сил 1.8 - максимальная скорость на трассе Lada Niva Travel / Лада Нива Тревел на пределе! | R Drive](https://www.youtube.com/watch?v=NErC7TLKk18)
-490. [Мужчины, прекратите делать ЭТО! 10 Ошибок, о которых молчат | Темная комната](https://www.youtube.com/watch?v=I_V88mcPGKA)
-491. [5 Привычек с вечера, которые ЗАСТАВЯТ ПОХУДЕТЬ! Знает лишь 1% | Максим Кузнецов](https://www.youtube.com/watch?v=MIw3gYiQsXI)
-492. [Что Рассказал Немецкий Разведчик Про СССР 1937 Года? Аудиокнига | Diodand](https://www.youtube.com/watch?v=xmwuK2WtneM)
-493. [ОН ЛУЧШИЙ / Daewoo Matiz / ENG YAXSHI / Иван Зенкевич | Иван Зенкевич PRO автомобили](https://www.youtube.com/watch?v=IOzJEZIrb-o)
-494. [Как работает АКПП? Всё, что ты боялся спросить про автомат | Дин](https://www.youtube.com/watch?v=GaMSNstilqs)
-495. [Как В СССР Оценили Армию Германии 1932 Года? Отчёт Начальника Управления РККА | Diodand](https://www.youtube.com/watch?v=j89DNf4Rnfw)
-496. [Мемуары Пилота Гитлера О Поездке В Москву В 1939 Году. Аудиокнига | Diodand](https://www.youtube.com/watch?v=smyYVPqHypQ)
-497. [Американские оружейные ужасы: Распил, смерть от своего оружия и судебные тяжбы | Военный эксперт](https://www.youtube.com/watch?v=XbqsIrlROAM)
-498. [Наша Volvo XC70. ПОДРОБНЫЙ тест и отзыв владельца. Сколько стоил ремонт? | АвтоПрактика](https://www.youtube.com/watch?v=lcoYiMKANlM)
-499. [Как не убиться при обгоне? Типичные ошибки в повороте | Владимир Мельников](https://www.youtube.com/watch?v=8RWrmwjxeXM)
-500. [КУПИЛ ЛУЧШУЮ МАШИНУ ДО МИЛЛИОНА РУБЛЕЙ! ВО СКОЛЬКО ОБОЙДЁТСЯ ПРИВЕСТИ В ПОРЯДОК? | LEGORAGE](https://www.youtube.com/watch?v=as7MrsYBTCI)
-501. [VOLVO V70 | 8 скрытых функций, о которых вы не знали | Jinzel](https://www.youtube.com/watch?v=CABjmer6KsQ)
-502. [Главный обман века! / Почему все массово пересели на SUV? | Почему купил Виталя](https://www.youtube.com/watch?v=bbpV1DF9Olk)
-503. [Как не убиться при обгоне? Ловушка полного привода | Владимир Мельников](https://www.youtube.com/watch?v=j3wWZipDRVo)
-504. [План нападения Германии на СССР. Разбор | Battle Map — история войн и сражений](https://www.youtube.com/watch?v=2mtMYwcrqnM)
-505. [Заброшенная технология из СССР: старая или опередила эпоху? | Летучий Оконщик](https://www.youtube.com/watch?v=1_ZT2WNgTHk)
-506. [Volvo V70 XC / XC70. Вот почему первый XC стал объектом Культа. | LiveBrother](https://www.youtube.com/watch?v=_5RYPyY3hnQ)
-507. [Как ПРАВИЛЬНО точить ножи. Северная Осетия. | Алексей Усов](https://www.youtube.com/watch?v=MGEpbvqP9nE)
-508. [Поездка в Тулу на бежевой восьмёрке. Малярные работы у тульских мастеров. | ОРБИТА СПУТНИКА](https://www.youtube.com/watch?v=6v_Ws8M7eHE)
-515. [Мне 39. И вот что я понял слишком поздно | Папа в Эмиграции - Мужчина Между Мирами и Lost in Budapest](https://www.youtube.com/watch?v=AFjzlHCG4kI)
-516. [Что значат названия: Саратов, Казань, Челябинск, Барнаул | TABULA RASA](https://www.youtube.com/watch?v=-OI3ISEtsd0)
-527. [Olive Wagyu in Japan - The rarest Steak in the World | Aden Films](https://www.youtube.com/watch?v=MURPf_6r8z4)
-534. [При Сталине в СССР были гамбургеры. Куда они пропали?| ‪@plenka_story‬ | Стас Бендиченко | Плёнка](https://www.youtube.com/watch?v=LcNC5to6Vww)
-535. [Светлана ФЕОДУЛОВА - Ария Плавы Лагуны из к/ф "Пятый Элемент" | ALEXANDER LYUTINSKIY VIDEO](https://www.youtube.com/watch?v=cUck0Lxq9EA)
-536. [Fall Asleep in 3-4 Minutes...Sounds Like a Dream! Dr. Mandell | motivationaldoc](https://www.youtube.com/watch?v=tvNARxpNDrA)
-537. [Drain Sinus & Clear Stuffy Nose in 1 Move | Created by Dr. Mandell | motivationaldoc](https://www.youtube.com/watch?v=I47xi2F3W9g)
-541. [](url)
+489. [90 сил 1.8 - максимальная скорость на трассе Lada Niva Travel / Лада Нива Тревел на пределе! | R Drive](https://www.youtube.com/watch?v=NErC7TLKk18)541. [](url)
