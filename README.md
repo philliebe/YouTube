@@ -15,6 +15,11 @@
 11. [Изменись за 1 месяц / Стань тем, кого хотят женщины, не изменяя себе | Темная комната](https://www.youtube.com/watch?v=SZ_MGAC9N-Q)
 12. 
 
+## Голос
+1. [Как сделать голос ниже и увереннее. 5 минут в день! | Кирилл Плешаков-Качалин](https://www.youtube.com/watch?v=U6cPnNfhkpQ)
+2. 
+3. 
+
 ## Рецепты
 ### Голодный Мужчина
 1. [ТОРТ БЕЗ ВЫПЕЧКИ за 1 минуту! ПРАВДА! + Сливочный крем "На дне" (ГМ, #147)](https://www.youtube.com/watch?v=76O12nCal8Q)
@@ -81,9 +86,13 @@
 3. 
 
 ## Английский
-1. 
-2. 
-3. 
+1. [Английский на слух по интервью | Илон Маск | Онлайн-школа «Инглекс» | Инглекс](https://www.youtube.com/watch?v=K7fTa_EHoBw)
+2. [УРОКИ СЛЕНГА не нужны. Почему английский сленг - пустая трата времени | Virginia Beowulf | Virginia Bēowulf · English Studies](https://www.youtube.com/watch?v=S6TGeeEM8M8)
+3. [Обучалка звучи как Американец за 5 минут - АНГЛИЙСКИЙ Th | englishbad](https://www.youtube.com/watch?v=w5ZhhGQrAwE)
+4. [Jackie Chan's struggle with English and how he learned it. #jackiechan #english #funny | IAmUs](https://www.youtube.com/watch?v=PyJOS7Y08I0)
+5. [Почему английский язык разошёлся с немецким? | История за 18 минут | Германские языки | Virginia Bēowulf · English Studies](https://www.youtube.com/watch?v=M5qSR7uXuG4)
+6. [Реально ли выучить АНГЛИЙСКИЙ ПО ПЕСНЯМ? Сел и разобрал парочку | Virginia Beowulf | Virginia Bēowulf · English Studies](https://www.youtube.com/watch?v=CehSEknSOpk)
+4. 
 
 ## Строительство дома
 1. [ВЕСЬ ПРОЦЕСС СТРОИТЕЛЬСТВА ЗА 20 МИН / КАК ПОСТРОИТЬ ДОМ НЕДОРОГО СВОИМИ РУКАМИ #какпостроитьдом | Город Возможностей](https://www.youtube.com/watch?v=tdLt62UsaFI)
@@ -136,7 +145,6 @@
 11. [«Осень». Самая большая загадка Windows XP | Девять десятых](https://www.youtube.com/watch?v=VjHJFTyQw_A)
 12. [Благодарю за внимание. Они сражались за Родину | Киноконцерн "Мосфильм"](https://www.youtube.com/watch?v=DxbPzVqjcNc)
 13. [Секреты памяти в IT: Забудь о забывчивости... | IT-Свободный Программист](https://www.youtube.com/watch?v=sSpAommfDzU)
-14. [Обучалка звучи как Американец за 5 минут - АНГЛИЙСКИЙ Th | englishbad](https://www.youtube.com/watch?v=w5ZhhGQrAwE)
 15. [Простой способ находить аккорды [НЕ дворовая гитара] | Нескучный Саунд](https://www.youtube.com/watch?v=bI4c77HikC0)
 16. [Время. Как мы с ним обращаемся | Denis Semenikhin](https://www.youtube.com/watch?v=uOKs1Fv7M4A)
 17. [Медленная жизнь эффективнее суетной жизни (развитие темы медленного движения) | психолог Сергей Кравченко](https://www.youtube.com/watch?v=rCjF8Bdj0AA)
@@ -198,8 +206,6 @@
 77. [Домашние NAS хранилища. Что это, зачем нужно и нужно ли вам? Покупать готовое или собрать самому? | TehnoBelka](https://www.youtube.com/watch?v=p7UNMQIjd50)
 78. [Я пользовался сплит клавиатурой в течении 30 дней | ZProger [ IT ]](https://www.youtube.com/watch?v=it_IcuvnjJM)
 79. [Dark is the Night - Soviet WW2 Song | Patriotic Archive II](https://www.youtube.com/watch?v=75P0QGi3RO0)
-80. [Jackie Chan's struggle with English and how he learned it. #jackiechan #english #funny | IAmUs](https://www.youtube.com/watch?v=PyJOS7Y08I0)
-    - Про Английский
 81. [Леонов о фильме "Кин-дза-дза!" | Pandit Uttam Prakash](https://www.youtube.com/watch?v=kxN21FzV3wk)
 82. [An OPERA SINGER joins me when I play BELLA CIAO 🇮🇹😱 | Van](https://www.youtube.com/watch?v=W3WjbXi6mM4)
 83. [This 14 years old girl made everyone cry 🥹❤️ | Emilio Piano](https://www.youtube.com/watch?v=GRpZ1xUTj3k)
@@ -268,9 +274,6 @@
 146. [10 признаков низкого тестостерона. На что важно обратить внимание. Александр Дзидзария | Александр Дзидзария](https://www.youtube.com/watch?v=Ke8ryfRXqV8)
 147. [Что делать, если путаешь MAN / MEN: звук Æ в английском | Virginia Beowulf | Virginia Bēowulf · English Studies](https://www.youtube.com/watch?v=iv-Y_DZmKdA)
 148. [Как 10 Отжиманий Каждый День Полностью Трансформируют Ваше Тело | Хромосома](https://www.youtube.com/watch?v=UFmaSnLTZYc)
-149. [Английский на слух по интервью | Илон Маск | Онлайн-школа «Инглекс» | Инглекс](https://www.youtube.com/watch?v=K7fTa_EHoBw)
-150. [Как сделать голос ниже и увереннее. 5 минут в день! | Кирилл Плешаков-Качалин](https://www.youtube.com/watch?v=U6cPnNfhkpQ)
-151. [УРОКИ СЛЕНГА не нужны. Почему английский сленг - пустая трата времени | Virginia Beowulf | Virginia Bēowulf · English Studies](https://www.youtube.com/watch?v=S6TGeeEM8M8)
 152. [Shooting the longest bullet ever made (3 foot long NERF dart) | Ryan Kung](https://www.youtube.com/watch?v=HxRefKGz3Ps)
 153. [Период распада. Война в Приднестровье. | Туземный совет трудящихся](https://www.youtube.com/watch?v=IX7PAia9j_0)
 154. [The Battle of Carentan, Normandy 1944 - Animated | The Operations Room](https://www.youtube.com/watch?v=42Je15vVtlQ)
@@ -425,7 +428,6 @@
 305. [24 Ways to tie your shoelaces, How to tie shoelaces, shoes lace styles, #shoelace #shorts #viral | Crafts DIY](https://www.youtube.com/watch?v=GhzGrc88Iy0)
 306. [СИДИ ПРАВИЛЬНО! Это ВАЖНО! | Ivan Krasavin](https://www.youtube.com/watch?v=pyyg_d9I89Y)
 307. [Разочарованию нет предела - проверяем сливочное масло / Как выбрать масло? | Другая Кухня](https://www.youtube.com/watch?v=Rc_3tmUf31U)
-308. [Почему английский язык разошёлся с немецким? | История за 18 минут | Германские языки | Virginia Bēowulf · English Studies](https://www.youtube.com/watch?v=M5qSR7uXuG4)
 309. [КАК ТОРГОВАТЬСЯ С РЕКРУТЕРОМ ПО ЗАРПЛАТЕ. ГОТОВЫЕ ОТВЕТЫ НА КАВЕРЗНЫЕ ВОПРОСЫ // Отвечаем грамотно | Victoria Borodina](https://www.youtube.com/watch?v=dyuyX_MdC4A)
 310. [Пример тайм-менеджмента: отрывок из фильма "Мне бы в небо" | Nadezhda Soteva](https://www.youtube.com/watch?v=6Is41mschhs)
 311. [Курс «Улучшайзер жизни» - План по достижению вашей цели от Павла Воли | Светлана Павлова](https://www.youtube.com/watch?v=p4SYEMSBaRI)
@@ -540,7 +542,6 @@
 424. [Как узнать своих предков до 18 века | Коллектив](https://www.youtube.com/watch?v=AseJdGAb1Sg)
 425. [Путь клеща: от рождения до вашей попы | Коллектив](https://www.youtube.com/watch?v=ThddA7eDfD0)
 426. [Как похудеть?!!Минус 25 кг!!! Алкоголь, питание, мотивация!!!Моя история похудения!!! | Paramonov](https://www.youtube.com/watch?v=skR9Zey9j38)
-427. [Реально ли выучить АНГЛИЙСКИЙ ПО ПЕСНЯМ? Сел и разобрал парочку | Virginia Beowulf | Virginia Bēowulf · English Studies](https://www.youtube.com/watch?v=CehSEknSOpk)
 428. [Моя скромная жизнь в Тайге. Медведи, глухари, огород. Варенье из Шишек. | Хвойный Край](https://www.youtube.com/watch?v=7tgc-W8irQI)
 429. [ТРАНССИБИРСКАЯ МАГИСТРАЛЬ │ 7 дней в ПЛАЦКАРТЕ (что будет, если украсть подстаканник?) | Elizaveta Illarionova](https://www.youtube.com/watch?v=-x5WkVoruqw)
 430. [Астигматизм. Мифы о диагнозе "астигматизм" | Наталья Ринская о нюансах подбора коррекции зрения](https://www.youtube.com/watch?v=YWKv_z738WU)
