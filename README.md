@@ -91,9 +91,21 @@
 3. 
 
 ## Разное
-1. 
-2. 
-3. 
+1. [[GoodComedian] - НОВОГОДНИЕ ФИЛЬМЫ (5 фильмов под ёлку) | EvgenComedian](https://www.youtube.com/watch?v=zsuLUjvVR7k)
+2. [Volonaut Airbike - Test Riding a Flying Speeder Bike | Volonaut](https://www.youtube.com/watch?v=XZpWTHtwceE)
+3. [«Буханке» за 1,6 млн рублей. Продавец попросил не смеяться, ведь «Буханку» собирают по технологии | Китайский -Машина](https://www.youtube.com/watch?v=uivzmtMt9as)
+4. [Цейтнот, 1985 | Alexandr Zudin](https://www.youtube.com/watch?v=6jlZ8B3hyQM)
+5. [Зачем раньше у Русских Изб делали Завалинку? | Pribambas TV](https://www.youtube.com/watch?v=KYrVmErasUY)
+6. [Bombshell Only Knows One Man's Meat? | DripNShoot](https://www.youtube.com/watch?v=yoPatjg58U8)
+7. [В Этуш о войне | Вадим Тычоблин](https://www.youtube.com/watch?v=_yzp9N3JNas)
+8. [Ошибки при выборе опасной бритвы: на что смотреть? | Поручиков Дмитрий Опасная Бритва](https://www.youtube.com/watch?v=56OJhgmFg1E)
+9. [The XC70 is the ultimate Volvo Estate (Station Wagon) | JJ on Cars](https://www.youtube.com/watch?v=-aiqcTpHmgQ)
+10. [Зачем Сталин забрал у Германии Кёнигсберг и что стало с местными немцами? | Русский Ежедневник](https://www.youtube.com/watch?v=LKUtyus29Dc)
+11. [Все делают вид, что работают? Что не так с офисами в 2025 году | Т—Ж](https://www.youtube.com/watch?v=4q-g-BKD5ik)
+12. [Как кредиты стали нормой | Т—Ж](https://www.youtube.com/watch?v=MFEUEOf5rBY)
+13. [Усталость как новая норма: выгорание, работа и жизнь на износ | Т—Ж](https://www.youtube.com/watch?v=_WWmxLyE0Hc)
+14. 
+15. 
 
 
 
