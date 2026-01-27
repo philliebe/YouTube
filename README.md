@@ -13,7 +13,9 @@
 9. [Вы пьете кофе НЕправильно? Сергей Вялов. | Наука с Александром Соколовским](https://www.youtube.com/watch?v=kSRctVV_aho)
 10. [Свобода быть одному: удобство, за которое мы дорого платим | Т—Ж](https://www.youtube.com/watch?v=xgxkmYNkLXM)
 11. [Изменись за 1 месяц / Стань тем, кого хотят женщины, не изменяя себе | Темная комната](https://www.youtube.com/watch?v=SZ_MGAC9N-Q)
-12. 
+12. [Как справляться с неудачами - история Квентина Тарантино | Роберт Родригес | Лекс Фридман на Русском](https://www.youtube.com/watch?v=2-PyCYiz3lk)
+13. [ИГОРЬ ВОЙТЕНКО НАУЧИТ ТЕБЯ ЖИЗНИ | RYTP | Лох тв...](https://www.youtube.com/watch?v=0VfqXP23mlk)
+14. 
 
 ## Голос
 1. [Как сделать голос ниже и увереннее. 5 минут в день! | Кирилл Плешаков-Качалин](https://www.youtube.com/watch?v=U6cPnNfhkpQ)
@@ -73,15 +75,19 @@
 2. [RUSSIAN SYSTEMA SPETSNAZ TRAINING - How to Develop Powerful Strikes and Punches | Systema Spetsnaz](https://www.youtube.com/watch?v=C-f_OXOd1CI)
 3. [Как начать заниматься калистеникой в ​​2026 году (лучшее руководство для начинающих) | Мистер Фитнес](https://www.youtube.com/watch?v=yxkta_006dw)
 4. [ХОЧЕШЬ ПОДТЯГИВАТЬСЯ БОЛЬШЕ? ЭТА СХЕМА ДЛЯ ТЕБЯ 🔥 Подтягивания + фиксация в верхней точке | Всеволод Фиалковский](https://www.youtube.com/watch?v=uBP39Hh2gbI)
-5. 
+5. [This Soviet Workout Builds UNREAL Muscle | Evolve & Build](https://www.youtube.com/watch?v=sPQL7x_I9Bw)
+6. [Один раз сделал и сутулиться не смог никогда после этого. Правильная осанка за 5 минут на всю жизнь | Антон Алексеев](https://www.youtube.com/watch?v=hm-vYGXx3Aw)
+7. [НАЧИНАЙ УТРО С ЭТОГО!!! | Ivan Krasavin](https://www.youtube.com/watch?v=JJYZd6IabFs)
+8. 
 
 ## Вождение
-1. 
-2. 
-3. 
+1. [Какой момент за рулём бесит больше всего? | 알룔료](https://www.youtube.com/watch?v=gHX9o0x1Bs8)
+2. [Как трогаться на механике обучение за 2 минуты! Легко и быстро | Алексей Здравый](https://www.youtube.com/watch?v=xbkbcPtKu_8)
+3. [Немного водительской мудрости. Главное правило водителя. | Quiring](https://www.youtube.com/watch?v=maNVVaxCs-A)
+4. 
 
 ## История
-1. 
+1. [Клим Жуков. Спецоперация в Ливонии 1558-1583: невыученный урок истории | Клим Жуков](https://www.youtube.com/watch?v=0j5hx3GQJbM)
 2. 
 3. 
 
@@ -100,12 +106,19 @@
 3. [Самая лучшая гидропонная установка для дома | Зеленая еда](https://www.youtube.com/watch?v=_vKqxIlA8xc)
 4. [Продуманный и красивый одноэтажный дом в Великом Новгороде/Обзор одноэтажного дома Сканди Валдай 130 | Территория Дома](https://www.youtube.com/watch?v=-LmE77kzq2g)
 5. [Одноэтажный дом 140 кв.м с террасой, баней и навесом для машины с хозблоком 🔥Дом с умом | Территория Дома](https://www.youtube.com/watch?v=jHQzr7TKjyc)
-6. 
+6. [Выпуск№25. РАСХОДЫ НА ОБСЛУЖИВАНИЕ ЧАСТНОГО ДОМА#домсвоимируками #домвдеревне #своимируками | Дом по цене ОДНУШКИ](https://www.youtube.com/watch?v=3Um8dSVC0dY)
+7. 
 
 ## Покупка авто
 1. 
 2. 
 3. 
+
+## Путешествия
+1. [Сколько же это стоило? Ответы на вопросы о поездке на Байкал. | Дачный Бич](https://www.youtube.com/watch?v=v76o0tcwLvs)
+2. [Путешествие на НИВЕ. 13000 км, на БАЙКАЛ из ПИТЕРА | Дачный Бич](https://www.youtube.com/watch?v=KEBKZMm-XUE)
+3. [Путешествие к Эльбрусу на НОВОЙ лада нива легенд! Часть 1 | Davydov channel](https://www.youtube.com/watch?v=Q9-FLkwOZQI)
+4. 
 
 ## Разное
 1. [[GoodComedian] - НОВОГОДНИЕ ФИЛЬМЫ (5 фильмов под ёлку) | EvgenComedian](https://www.youtube.com/watch?v=zsuLUjvVR7k)
@@ -150,25 +163,22 @@
 17. [Медленная жизнь эффективнее суетной жизни (развитие темы медленного движения) | психолог Сергей Кравченко](https://www.youtube.com/watch?v=rCjF8Bdj0AA)
 18. [Ейск/Жизнь на юге ПЛЮСЫ и МИНУСЫ/Почему я уезжаю. | Переезд на юг. Жизнь у моря🌊](https://www.youtube.com/watch?v=0Xj0zUBkstM)
 19. [История одной НИВЫ. Рассказ ДЕВУШКИ о её машине. | Дачный Бич](https://www.youtube.com/watch?v=kgKd866nCvU)
-20. [Сколько же это стоило? Ответы на вопросы о поездке на Байкал. | Дачный Бич](https://www.youtube.com/watch?v=v76o0tcwLvs)
-21. [Путешествие на НИВЕ. 13000 км, на БАЙКАЛ из ПИТЕРА | Дачный Бич](https://www.youtube.com/watch?v=KEBKZMm-XUE)
+20. 
 22. [5 Горьких ФАКТОВ о девушках которые я ХОТЕЛ БЫ ЗНАТЬ в 20 лет. | Коуч Джордж](https://www.youtube.com/watch?v=SVx6cYdqn2o)
-23. [Путешествие к Эльбрусу на НОВОЙ лада нива легенд! Часть 1 | Davydov channel](https://www.youtube.com/watch?v=Q9-FLkwOZQI)
-24. [Немного водительской мудрости. Главное правило водителя. | Quiring](https://www.youtube.com/watch?v=maNVVaxCs-A)
-25. [Жорик Ревазов "Потреблядство" | PTH PHX](https://www.youtube.com/watch?v=_Cwq8tK0Xx8)
-26. [Никогда не делай это перед сексом/ Главные мужские ошибки | Темная комната](https://www.youtube.com/watch?v=ouhgX4ogp5w)
-27. [Как легко проехать 1000 км. без усталости? | Вася на связи](https://www.youtube.com/watch?v=riGonSS5ofE)
-28. [Мастерская. Ремонт звука в консоли "9999 in 1 Tetris" | IVANOFF_LIVE](https://www.youtube.com/watch?v=bgCyC2HEt1c)
-29. [✅Тетрис. Восстановление токопроводящей резины. Чистка пластика меламиновой губкой из FixPrice. | Zloy Elvis](https://www.youtube.com/watch?v=oKVcJCgqyOs)
-30. [Играть в тетрис как в 90-е - Simba's Brick Game | Проявляй Эмоции](https://www.youtube.com/watch?v=4CiRxu9-Bv0)
-31. [GAYAZOV$ BROTHER$ - Про Малиновую Ладу, фейковый голос и конкуренцию / Опять не Гальцев | Плюшки](https://www.youtube.com/watch?v=I-MGg-Gr7_g)
-32. [Полная запись переговоров на ЧАЭС в ночь 26 апреля 1986 года. Уникальная запись! | Bogdan](https://www.youtube.com/watch?v=-9Gi890VQ40)
-33. [Запрещенные и замалчиваемые знания. Неволина Н.А. | 4istit](https://www.youtube.com/watch?v=CdWrYrwU36c)
-34. [Самолёт по дешману 2 #12 Финальные испытания | Скифовский](https://www.youtube.com/watch?v=2VCMXGRgCIU)
-35. [The Best Job in the World | Brent Voris](https://www.youtube.com/watch?v=yPvsfNPraSU)
-36. [Ваня Усович "40 ЛЕТ МАКСИМУМ" 2023 | Ваня Усович](https://www.youtube.com/watch?v=RTifScOdX-U)
-37. [Самая Загадочная Русская Песня в Интернете | Мой Блуждающий Огонь | ray's junk](https://www.youtube.com/watch?v=p_5AZvCoEOI)
-38. [И зачем мы терзаем себя | Denis Semenikhin](https://www.youtube.com/watch?v=LIfx090HBFY)
+26. [Жорик Ревазов "Потреблядство" | PTH PHX](https://www.youtube.com/watch?v=_Cwq8tK0Xx8)
+27. [Никогда не делай это перед сексом/ Главные мужские ошибки | Темная комната](https://www.youtube.com/watch?v=ouhgX4ogp5w)
+28. [Как легко проехать 1000 км. без усталости? | Вася на связи](https://www.youtube.com/watch?v=riGonSS5ofE)
+29. [Мастерская. Ремонт звука в консоли "9999 in 1 Tetris" | IVANOFF_LIVE](https://www.youtube.com/watch?v=bgCyC2HEt1c)
+30. [✅Тетрис. Восстановление токопроводящей резины. Чистка пластика меламиновой губкой из FixPrice. | Zloy Elvis](https://www.youtube.com/watch?v=oKVcJCgqyOs)
+31. [Играть в тетрис как в 90-е - Simba's Brick Game | Проявляй Эмоции](https://www.youtube.com/watch?v=4CiRxu9-Bv0)
+32. [GAYAZOV$ BROTHER$ - Про Малиновую Ладу, фейковый голос и конкуренцию / Опять не Гальцев | Плюшки](https://www.youtube.com/watch?v=I-MGg-Gr7_g)
+33. [Полная запись переговоров на ЧАЭС в ночь 26 апреля 1986 года. Уникальная запись! | Bogdan](https://www.youtube.com/watch?v=-9Gi890VQ40)
+34. [Запрещенные и замалчиваемые знания. Неволина Н.А. | 4istit](https://www.youtube.com/watch?v=CdWrYrwU36c)
+35. [Самолёт по дешману 2 #12 Финальные испытания | Скифовский](https://www.youtube.com/watch?v=2VCMXGRgCIU)
+36. [The Best Job in the World | Brent Voris](https://www.youtube.com/watch?v=yPvsfNPraSU)
+37. [Ваня Усович "40 ЛЕТ МАКСИМУМ" 2023 | Ваня Усович](https://www.youtube.com/watch?v=RTifScOdX-U)
+38. [Самая Загадочная Русская Песня в Интернете | Мой Блуждающий Огонь | ray's junk](https://www.youtube.com/watch?v=p_5AZvCoEOI)
+39. [И зачем мы терзаем себя | Denis Semenikhin](https://www.youtube.com/watch?v=LIfx090HBFY)
 42. [В отпуск с палаткой на B классе вчетвером! Lada Vesta AT (вариатор). Отдых на Дону (Воронежская обл) | Александр Будкин](https://www.youtube.com/watch?v=6SnY2D09xmo)
 44. [Какой смысл худеть к лету? / Редакция | Редакция](https://www.youtube.com/watch?v=RIoo7zVbHmk)
 45. [Рваная индейка на пеллетном гриле Oklahoma Joe's | Budrin_Grillin](https://www.youtube.com/watch?v=oFrsfTcHLZw)
@@ -635,20 +645,11 @@
 519. [Введение погон в Красной Армии | Канал Правда Жизни](https://www.youtube.com/watch?v=A5oq1fdQ6pg)
 520. [Volvo 200+ тыс км — брать или бежать? | Честные ответы · Часть 2 | Игорь Малышев - Автоподбор](https://www.youtube.com/watch?v=dKmsPHQq588)
 521. [УДИВИТЕЛЬНЫЙ УРУГВАЙ. СТРАНА, О КОТОРОЙ НИКТО НЕ ЗНАЕТ! | Агент24х7](https://www.youtube.com/watch?v=gYAvkv7gwAU)
-522. [Один раз сделал и сутулиться не смог никогда после этого. Правильная осанка за 5 минут на всю жизнь | Антон Алексеев](https://www.youtube.com/watch?v=hm-vYGXx3Aw)
-523. [НАЧИНАЙ УТРО С ЭТОГО!!! | Ivan Krasavin](https://www.youtube.com/watch?v=JJYZd6IabFs)
-524. [Клим Жуков. Спецоперация в Ливонии 1558-1583: невыученный урок истории | Клим Жуков](https://www.youtube.com/watch?v=0j5hx3GQJbM)
 525. [ЖЕСКИЕ ШАШКИ НА ГЕЛИКЕ / MERC G63 ПО МОСКВЕ | Антагонист](https://www.youtube.com/watch?v=LslIYjzSPIc)
 526. [80133р за МЕСЯЦ. Пассивный ДОХОД 2026. Без курсов и инфоцыган. Финансовая грамотность | Коротко и внятно](https://www.youtube.com/watch?v=Msm5NbBz5ts)
 527. [Olive Wagyu in Japan - The rarest Steak in the World | Aden Films](https://www.youtube.com/watch?v=MURPf_6r8z4)
-531. [Выпуск№25. РАСХОДЫ НА ОБСЛУЖИВАНИЕ ЧАСТНОГО ДОМА#домсвоимируками #домвдеревне #своимируками | Дом по цене ОДНУШКИ](https://www.youtube.com/watch?v=3Um8dSVC0dY)
-532. [Какой момент за рулём бесит больше всего? | 알룔료](https://www.youtube.com/watch?v=gHX9o0x1Bs8)
-533. [Как трогаться на механике обучение за 2 минуты! Легко и быстро | Алексей Здравый](https://www.youtube.com/watch?v=xbkbcPtKu_8)
 534. [При Сталине в СССР были гамбургеры. Куда они пропали?| ‪@plenka_story‬ | Стас Бендиченко | Плёнка](https://www.youtube.com/watch?v=LcNC5to6Vww)
 535. [Светлана ФЕОДУЛОВА - Ария Плавы Лагуны из к/ф "Пятый Элемент" | ALEXANDER LYUTINSKIY VIDEO](https://www.youtube.com/watch?v=cUck0Lxq9EA)
 536. [Fall Asleep in 3-4 Minutes...Sounds Like a Dream! Dr. Mandell | motivationaldoc](https://www.youtube.com/watch?v=tvNARxpNDrA)
 537. [Drain Sinus & Clear Stuffy Nose in 1 Move | Created by Dr. Mandell | motivationaldoc](https://www.youtube.com/watch?v=I47xi2F3W9g)
-538. [Как справляться с неудачами - история Квентина Тарантино | Роберт Родригес | Лекс Фридман на Русском](https://www.youtube.com/watch?v=2-PyCYiz3lk)
-539. [ИГОРЬ ВОЙТЕНКО НАУЧИТ ТЕБЯ ЖИЗНИ | RYTP | Лох тв...](https://www.youtube.com/watch?v=0VfqXP23mlk)
-540. [This Soviet Workout Builds UNREAL Muscle | Evolve & Build](https://www.youtube.com/watch?v=sPQL7x_I9Bw)
 541. [](url)
