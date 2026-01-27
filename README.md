@@ -86,6 +86,14 @@
 3. 
 
 ## Строительство дома
+1. [ВЕСЬ ПРОЦЕСС СТРОИТЕЛЬСТВА ЗА 20 МИН / КАК ПОСТРОИТЬ ДОМ НЕДОРОГО СВОИМИ РУКАМИ #какпостроитьдом | Город Возможностей](https://www.youtube.com/watch?v=tdLt62UsaFI)
+2. [Умный дом за 1500 рублей | Артем Матяшов](https://www.youtube.com/watch?v=SKBjRRWFEOw)
+3. [Самая лучшая гидропонная установка для дома | Зеленая еда](https://www.youtube.com/watch?v=_vKqxIlA8xc)
+4. [Продуманный и красивый одноэтажный дом в Великом Новгороде/Обзор одноэтажного дома Сканди Валдай 130 | Территория Дома](https://www.youtube.com/watch?v=-LmE77kzq2g)
+5. [Одноэтажный дом 140 кв.м с террасой, баней и навесом для машины с хозблоком 🔥Дом с умом | Территория Дома](https://www.youtube.com/watch?v=jHQzr7TKjyc)
+6. 
+
+## Покупка авто
 1. 
 2. 
 3. 
@@ -104,8 +112,10 @@
 11. [Все делают вид, что работают? Что не так с офисами в 2025 году | Т—Ж](https://www.youtube.com/watch?v=4q-g-BKD5ik)
 12. [Как кредиты стали нормой | Т—Ж](https://www.youtube.com/watch?v=MFEUEOf5rBY)
 13. [Усталость как новая норма: выгорание, работа и жизнь на износ | Т—Ж](https://www.youtube.com/watch?v=_WWmxLyE0Hc)
-14. 
-15. 
+14. [Главные битвы Великой Отечественной войны за 7 минут | Минутная История](https://www.youtube.com/watch?v=nflqWU43TEk)
+15. [ПО 2 Самолет-легенда. Обзор и рассказ пилота | Авиапарк Орешково](https://www.youtube.com/watch?v=RTshwW8a6m4)
+16. [ИЛ 2. Легендарная боевая машина в Авиапарке Орешково | Авиапарк Орешково](https://www.youtube.com/watch?v=5KNwQWDp3fs)
+17. 
 
 
 
@@ -120,7 +130,6 @@
 4. [Презентация книги "Ареал. Что Посеешь" - Сергей Тармашев - 17.12.2016 | Миры и войны Сергея Тармашева](https://www.youtube.com/watch?v=v5qXNfa3m54)
 5. [Мой оптимальный режим. Как уделять минимум времени тренировкам с максимальным эффектом. | Denis Semenikhin](https://www.youtube.com/watch?v=ieYYyvHQLW8)
 6. [Готовлю два раза в день. Ужин за 100 рублей. Секрет в банке | Шеф-повар Василий Емельяненко](https://www.youtube.com/watch?v=bAUSqijoEag)
-7. [Умный дом за 1500 рублей | Артем Матяшов](https://www.youtube.com/watch?v=SKBjRRWFEOw)
 8. [[Эксклюзив]Реклама Лада Нива 4х4 в Боливии, дубляж на русском языке | 4x4 NIVA-TV](https://www.youtube.com/watch?v=gSmUSCZAkhk)
 9. [ТАКСИ 1? ФРАНЦУЖЕНКА ВСЁ ОБЪЯСНИТ! | Леа Камомий](https://www.youtube.com/watch?v=UwZJ6iyGdxk)
 10. [Ловушка коротких видео. Как вы отдаете самое ценное | Простая экономика](https://www.youtube.com/watch?v=yQebXIkBAws)
@@ -152,11 +161,7 @@
 36. [Ваня Усович "40 ЛЕТ МАКСИМУМ" 2023 | Ваня Усович](https://www.youtube.com/watch?v=RTifScOdX-U)
 37. [Самая Загадочная Русская Песня в Интернете | Мой Блуждающий Огонь | ray's junk](https://www.youtube.com/watch?v=p_5AZvCoEOI)
 38. [И зачем мы терзаем себя | Denis Semenikhin](https://www.youtube.com/watch?v=LIfx090HBFY)
-39. [Главные битвы Великой Отечественной войны за 7 минут | Минутная История](https://www.youtube.com/watch?v=nflqWU43TEk)
-40. [ПО 2 Самолет-легенда. Обзор и рассказ пилота | Авиапарк Орешково](https://www.youtube.com/watch?v=RTshwW8a6m4)
-41. [ИЛ 2. Легендарная боевая машина в Авиапарке Орешково | Авиапарк Орешково](https://www.youtube.com/watch?v=5KNwQWDp3fs)
 42. [В отпуск с палаткой на B классе вчетвером! Lada Vesta AT (вариатор). Отдых на Дону (Воронежская обл) | Александр Будкин](https://www.youtube.com/watch?v=6SnY2D09xmo)
-43. [Самая лучшая гидропонная установка для дома | Зеленая еда](https://www.youtube.com/watch?v=_vKqxIlA8xc)
 44. [Какой смысл худеть к лету? / Редакция | Редакция](https://www.youtube.com/watch?v=RIoo7zVbHmk)
 45. [Рваная индейка на пеллетном гриле Oklahoma Joe's | Budrin_Grillin](https://www.youtube.com/watch?v=oFrsfTcHLZw)
 46. [Дубна — столица техасского барбекю. И вот почему | Budrin_Grillin](https://www.youtube.com/watch?v=0VOOJfXWTsA)
@@ -491,8 +496,6 @@
 378. [Фантастическая анатомия пауков - все, что вы должны знать | EXPLANATION-AVENUE - 3D Animations by Oliver Ende](https://www.youtube.com/watch?v=JpuqwfKR66U)
 379. [Мощность в лошадиных силах и крутящий момент Самое простое объяснение | The Maker](https://www.youtube.com/watch?v=NkIO08dlg_s)
 380. [Организация своего времени || ТЕМА ЧАСА | РЖД ТВ](https://www.youtube.com/watch?v=KFm2Oi1pH08)
-381. [Продуманный и красивый одноэтажный дом в Великом Новгороде/Обзор одноэтажного дома Сканди Валдай 130 | Территория Дома](https://www.youtube.com/watch?v=-LmE77kzq2g)
-382. [Одноэтажный дом 140 кв.м с террасой, баней и навесом для машины с хозблоком 🔥Дом с умом | Территория Дома](https://www.youtube.com/watch?v=jHQzr7TKjyc)
 383. [Короткометражный фильм "Хочу, чтобы" | Григорий Павленко](https://www.youtube.com/watch?v=H7pLfVkzAa0)
 384. [Советский мультфильм про нашу жизнь ! | Дедушка Аргентинца](https://www.youtube.com/watch?v=PJXi69wfuhw)
 385. [Способ быстро “Почувствовать” габариты на разных авто, даже если ты впервые сел за руль. | ПРАВИЛА ДОРОГИ](https://www.youtube.com/watch?v=db2A15yPKtk)
@@ -623,7 +626,6 @@
 510. [В Чем Главная Слабость Японских Солдат? | Diodand](https://www.youtube.com/watch?v=ztLDxSYH11A)
 511. ["Украина — нейтральное государство": Путин рассказал в интервью о целях СВО и причинах его начала | Сила Слова](https://www.youtube.com/watch?v=VQH8tDP007Q)
 512. [Психология Людей которые Не Отмечают Свой День Рождения | Выход из Тьмы ](https://www.youtube.com/watch?v=OnXOAgwaAao)
-513. [ВЕСЬ ПРОЦЕСС СТРОИТЕЛЬСТВА ЗА 20 МИН / КАК ПОСТРОИТЬ ДОМ НЕДОРОГО СВОИМИ РУКАМИ #какпостроитьдом | Город Возможностей](https://www.youtube.com/watch?v=tdLt62UsaFI)
 514. [Думаете, что покупаете БЕСПЛАТНО? Как на самом деле работает оплата частями (Сплит, Подели, Долями) | Т—Ж](https://www.youtube.com/watch?v=UmpbpacQ2ho)
 515. [Мне 39. И вот что я понял слишком поздно | Папа в Эмиграции - Мужчина Между Мирами и Lost in Budapest](https://www.youtube.com/watch?v=AFjzlHCG4kI)
 516. [Что значат названия: Саратов, Казань, Челябинск, Барнаул | TABULA RASA](https://www.youtube.com/watch?v=-OI3ISEtsd0)
