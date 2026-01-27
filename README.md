@@ -24,8 +24,16 @@
 
 
 ## Музыка
-1. 
-2. 
+1. [Cigarettes After Sex - Apocalypse (Live on KEXP) | KEXP](https://www.youtube.com/watch?v=-mnH9-SX2Tg)
+2. [Julia Smiles - Tomorrow | Sofar Moscow | Sofar Sounds](https://www.youtube.com/watch?v=tXmDt_O9ME4)
+3. [InWhite - Спокойных Снов | Sofar Moscow | Sofar Sounds](https://www.youtube.com/watch?v=2ca-IH32MM8)
+4. [как же здесь красиво | Ошибся номером](https://www.youtube.com/watch?v=WezyQDtMX0I)
+5. [CHVRCHES - Killer (Lyric Video) | CHVRCHES](https://www.youtube.com/watch?v=YDEyC8F4NgE)
+6. [Ed Sheeran & Elton John - Merry Christmas [Official Video] | Ed Sheeran](https://www.youtube.com/watch?v=Q_yuO8UNGmY)
+7. [Luciano Pavarotti - Ave Maria (Schubert) | Warner Classics](https://www.youtube.com/watch?v=XpYGgtrMTYs)
+8. [BoyWithUke - Long Drives (Official Music Video) | BoyWithUke](https://www.youtube.com/watch?v=FIILsSmS_nA)
+9. [Claire Laffut - Vérité | Claire Laffut](https://www.youtube.com/watch?v=tQ3HWIsZXPM)
+10. 
 
 
 ## Голос
@@ -286,10 +294,6 @@
 82. [An OPERA SINGER joins me when I play BELLA CIAO 🇮🇹😱 | Van](https://www.youtube.com/watch?v=W3WjbXi6mM4)
 83. [This 14 years old girl made everyone cry 🥹❤️ | Emilio Piano](https://www.youtube.com/watch?v=GRpZ1xUTj3k)
 84. [How to Customize Windows Without Rainmeter and Third Party Skin Packs | Tanjim The Tech Guy](https://www.youtube.com/watch?v=YbF8sVTx3r4)
-85. [Cigarettes After Sex - Apocalypse (Live on KEXP) | KEXP](https://www.youtube.com/watch?v=-mnH9-SX2Tg)
-86. [Julia Smiles - Tomorrow | Sofar Moscow | Sofar Sounds](https://www.youtube.com/watch?v=tXmDt_O9ME4)
-87. [InWhite - Спокойных Снов | Sofar Moscow | Sofar Sounds](https://www.youtube.com/watch?v=2ca-IH32MM8)
-88. [как же здесь красиво | Ошибся номером](https://www.youtube.com/watch?v=WezyQDtMX0I)
 89. [ЭКСПЕРТ НА ДЕНЬ! АВТО ЗА 800тр НА АКПП! VW JETTA, ASTRA, CRUZE, FORD FOCUS, SOLARIS, TIIDA, MAZDA 6 | AUTO FACT](https://www.youtube.com/watch?v=Lq7srjYiWDo)
 90. [История провала Windows Phone! | THE ROCO](https://www.youtube.com/watch?v=oG3kt68pnY8)
 91. [Самый легкий способ УДВОИТЬ Продуктивность (Вы точно начнете его использовать) | Томас Франк](https://www.youtube.com/watch?v=DqglgNbyy-Q)
