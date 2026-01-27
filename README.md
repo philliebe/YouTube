@@ -108,16 +108,24 @@
 4. [Продуманный и красивый одноэтажный дом в Великом Новгороде/Обзор одноэтажного дома Сканди Валдай 130 | Территория Дома](https://www.youtube.com/watch?v=-LmE77kzq2g)
 5. [Одноэтажный дом 140 кв.м с террасой, баней и навесом для машины с хозблоком 🔥Дом с умом | Территория Дома](https://www.youtube.com/watch?v=jHQzr7TKjyc)
 6. [Выпуск№25. РАСХОДЫ НА ОБСЛУЖИВАНИЕ ЧАСТНОГО ДОМА#домсвоимируками #домвдеревне #своимируками | Дом по цене ОДНУШКИ](https://www.youtube.com/watch?v=3Um8dSVC0dY)
-7. 
+7. [ДОМ 60 М/2 за 50 ДНЕЙ СКОЛЬКО СТОИТ ??? КАК ПОСТРОИТЬ ДОМ СВОИМИ РУКАМИ НЕ ДОРОГО ИЗ ГАЗОБЕТОНА | Город Возможностей](https://www.youtube.com/watch?v=vVAJVr87RVA)
+8. 
 
 ## Покупка авто
-1. [Volvo: честные ответы на вопросы, о которых молчат продавцы 🚗❌ | XC60, XC90, пробеги, обслуживание | Игорь Малышев - Автоподбор](https://www.youtube.com/watch?v=cBdEo6Ni9_E)
-2. 
+### Игорь Малышев - Автоподбор
+1. [Volvo: честные ответы на вопросы, о которых молчат продавцы 🚗❌ | XC60, XC90, пробеги, обслуживание](https://www.youtube.com/watch?v=cBdEo6Ni9_E)
+2. [Volvo 200+ тыс км — брать или бежать? | Честные ответы · Часть 2](https://www.youtube.com/watch?v=dKmsPHQq588)
 3. 
+
+### VOLLUX /// Автосервис автомобилей VOLVO & GEELY
+1. [Volvo XC70 ( 2001 - 2007г.) | Стоимость обслуживания двигателя!](https://www.youtube.com/watch?v=jcczPpMQyyo)
+
+### Другие
+1. 
 
 ## Финансы
 1. [Думаете, что покупаете БЕСПЛАТНО? Как на самом деле работает оплата частями (Сплит, Подели, Долями) | Т—Ж](https://www.youtube.com/watch?v=UmpbpacQ2ho)
-2. 
+2. [80133р за МЕСЯЦ. Пассивный ДОХОД 2026. Без курсов и инфоцыган. Финансовая грамотность | Коротко и внятно](https://www.youtube.com/watch?v=Msm5NbBz5ts)
 3. 
 
 ## Путешествия
@@ -146,20 +154,14 @@
 17. [Почему в 2026 году невозможно найти работу мечты | Т—Ж](https://www.youtube.com/watch?v=LAJVWBVwca0)
 18. [В Чем Главная Слабость Японских Солдат? | Diodand](https://www.youtube.com/watch?v=ztLDxSYH11A)
 19. ["Украина — нейтральное государство": Путин рассказал в интервью о целях СВО и причинах его начала | Сила Слова](https://www.youtube.com/watch?v=VQH8tDP007Q)
-20. 
-508. 
-509. 
-510. 
-511. 
-512. 
-514. 
+20. [Введение погон в Красной Армии | Канал Правда Жизни](https://www.youtube.com/watch?v=A5oq1fdQ6pg)
+21. [Дань уважения VOLVO 850 | VOLLUX /// Автосервис автомобилей VOLVO & GEELY](https://www.youtube.com/watch?v=K962KArTJqQ)
+22. [УДИВИТЕЛЬНЫЙ УРУГВАЙ. СТРАНА, О КОТОРОЙ НИКТО НЕ ЗНАЕТ! | Агент24х7](https://www.youtube.com/watch?v=gYAvkv7gwAU)
+23. [ЖЕСКИЕ ШАШКИ НА ГЕЛИКЕ / MERC G63 ПО МОСКВЕ | Антагонист](https://www.youtube.com/watch?v=LslIYjzSPIc)
+24. 
 
 
-
-
-
-
-
+# Разобрать
 1. [Если вы уделите мне 5 минут, вы вернете 5 лет своей жизни | Психолог Евгения](https://www.youtube.com/watch?v=E0R3QcFyoP8)
    - Что интересного в видео
 2. [Как просто ПРЕВЗОЙТИ всех (самый легкий путь) | Sunnat Shukhratov](https://www.youtube.com/watch?v=-uinOUDYjl4)
@@ -510,7 +512,7 @@
 365. [Назначение Путина директором ФСБ (1998) | История](https://www.youtube.com/watch?v=zv0aswAwLps)
 366. [Почему вам нужно изменить рабочее место? | леша комаров](https://www.youtube.com/watch?v=TozJfUmvR2Q)
 367. [Operation Market Garden: Aerial Maneuvers (The Forgotten Battle, 2020)/(De slag om de Schelde) | War Scream on Silver Screen](https://www.youtube.com/watch?v=Or2YDzOK0mc)
-368. [Дань уважения VOLVO 850 | VOLLUX /// Автосервис автомобилей VOLVO & GEELY](https://www.youtube.com/watch?v=K962KArTJqQ)
+368. 
 369. [Любимое кино многих - плагиат! Как в СССР крали фильмы | NEXTA Live](https://www.youtube.com/watch?v=iHf_twgCqD8)
 370. [Самый простой путь стать пилотом. Как на самом деле проходит лётное обучение | KD Aero](https://www.youtube.com/watch?v=RraH_D2D5DI)
 371. [Нашел самый дешевый способ стать пилотом | kudri fm](https://www.youtube.com/watch?v=UdnkloiGjUo)
@@ -649,13 +651,6 @@
 507. [Поездка в Тулу на бежевой восьмёрке. Малярные работы у тульских мастеров. | ОРБИТА СПУТНИКА](https://www.youtube.com/watch?v=6v_Ws8M7eHE)
 515. [Мне 39. И вот что я понял слишком поздно | Папа в Эмиграции - Мужчина Между Мирами и Lost in Budapest](https://www.youtube.com/watch?v=AFjzlHCG4kI)
 516. [Что значат названия: Саратов, Казань, Челябинск, Барнаул | TABULA RASA](https://www.youtube.com/watch?v=-OI3ISEtsd0)
-517. [ДОМ 60 М/2 за 50 ДНЕЙ СКОЛЬКО СТОИТ ??? КАК ПОСТРОИТЬ ДОМ СВОИМИ РУКАМИ НЕ ДОРОГО ИЗ ГАЗОБЕТОНА | Город Возможностей](https://www.youtube.com/watch?v=vVAJVr87RVA)
-518. [Volvo XC70 ( 2001 - 2007г.) | Стоимость обслуживания двигателя! | VOLLUX /// Автосервис автомобилей VOLVO & GEELY](https://www.youtube.com/watch?v=jcczPpMQyyo)
-519. [Введение погон в Красной Армии | Канал Правда Жизни](https://www.youtube.com/watch?v=A5oq1fdQ6pg)
-520. [Volvo 200+ тыс км — брать или бежать? | Честные ответы · Часть 2 | Игорь Малышев - Автоподбор](https://www.youtube.com/watch?v=dKmsPHQq588)
-521. [УДИВИТЕЛЬНЫЙ УРУГВАЙ. СТРАНА, О КОТОРОЙ НИКТО НЕ ЗНАЕТ! | Агент24х7](https://www.youtube.com/watch?v=gYAvkv7gwAU)
-525. [ЖЕСКИЕ ШАШКИ НА ГЕЛИКЕ / MERC G63 ПО МОСКВЕ | Антагонист](https://www.youtube.com/watch?v=LslIYjzSPIc)
-526. [80133р за МЕСЯЦ. Пассивный ДОХОД 2026. Без курсов и инфоцыган. Финансовая грамотность | Коротко и внятно](https://www.youtube.com/watch?v=Msm5NbBz5ts)
 527. [Olive Wagyu in Japan - The rarest Steak in the World | Aden Films](https://www.youtube.com/watch?v=MURPf_6r8z4)
 534. [При Сталине в СССР были гамбургеры. Куда они пропали?| ‪@plenka_story‬ | Стас Бендиченко | Плёнка](https://www.youtube.com/watch?v=LcNC5to6Vww)
 535. [Светлана ФЕОДУЛОВА - Ария Плавы Лагуны из к/ф "Пятый Элемент" | ALEXANDER LYUTINSKIY VIDEO](https://www.youtube.com/watch?v=cUck0Lxq9EA)
