@@ -13,14 +13,30 @@
 8. [Секс в браке невозможен? Наталья Фомичева. | Наука с Александром Соколовским](https://www.youtube.com/watch?v=DtOw-59AfzI)
 9. [Вы пьете кофе НЕправильно? Сергей Вялов. | Наука с Александром Соколовским](https://www.youtube.com/watch?v=kSRctVV_aho)
 10. [Свобода быть одному: удобство, за которое мы дорого платим | Т—Ж](https://www.youtube.com/watch?v=xgxkmYNkLXM)
-11. [Изменись за 1 месяц / Стань тем, кого хотят женщины, не изменяя себе | Темная комната](https://www.youtube.com/watch?v=SZ_MGAC9N-Q)
+11. 
 12. [Как справляться с неудачами - история Квентина Тарантино | Роберт Родригес | Лекс Фридман на Русском](https://www.youtube.com/watch?v=2-PyCYiz3lk)
 13. [ИГОРЬ ВОЙТЕНКО НАУЧИТ ТЕБЯ ЖИЗНИ | RYTP | Лох тв...](https://www.youtube.com/watch?v=0VfqXP23mlk)
 14. [Психология Людей которые Не Отмечают Свой День Рождения | Выход из Тьмы ](https://www.youtube.com/watch?v=OnXOAgwaAao)
 15. [Ловушка коротких видео. Как вы отдаете самое ценное | Простая экономика](https://www.youtube.com/watch?v=yQebXIkBAws)
-16. [Время. Как мы с ним обращаемся | Denis Semenikhin](https://www.youtube.com/watch?v=uOKs1Fv7M4A)
+16. 
 17. [Медленная жизнь эффективнее суетной жизни (развитие темы медленного движения) | психолог Сергей Кравченко](https://www.youtube.com/watch?v=rCjF8Bdj0AA)
-18. 
+92. 
+93. 
+
+### Denis Semenikhin
+1. [Мой распорядок дня. Утренняя активность, выработка привычки.](https://www.youtube.com/watch?v=T08FtgSRhLU)
+2. [Время. Как мы с ним обращаемся](https://www.youtube.com/watch?v=uOKs1Fv7M4A)
+
+### Простые Мысли
+1. [Вот почему одни ДЕЛАЮТ, а другие жалуются](https://www.youtube.com/watch?v=KHtIKSUa52Y)
+2. 
+
+### Томас Франк
+1. [Самый легкий способ УДВОИТЬ Продуктивность (Вы точно начнете его использовать)](https://www.youtube.com/watch?v=DqglgNbyy-Q)
+2. 
+
+### Темная комната
+1. [Изменись за 1 месяц / Стань тем, кого хотят женщины, не изменяя себе](https://www.youtube.com/watch?v=SZ_MGAC9N-Q)
 
 
 ## Музыка
@@ -296,9 +312,7 @@
 84. [How to Customize Windows Without Rainmeter and Third Party Skin Packs | Tanjim The Tech Guy](https://www.youtube.com/watch?v=YbF8sVTx3r4)
 89. [ЭКСПЕРТ НА ДЕНЬ! АВТО ЗА 800тр НА АКПП! VW JETTA, ASTRA, CRUZE, FORD FOCUS, SOLARIS, TIIDA, MAZDA 6 | AUTO FACT](https://www.youtube.com/watch?v=Lq7srjYiWDo)
 90. [История провала Windows Phone! | THE ROCO](https://www.youtube.com/watch?v=oG3kt68pnY8)
-91. [Самый легкий способ УДВОИТЬ Продуктивность (Вы точно начнете его использовать) | Томас Франк](https://www.youtube.com/watch?v=DqglgNbyy-Q)
-92. [Вот почему одни ДЕЛАЮТ, а другие жалуются | Простые Мысли](https://www.youtube.com/watch?v=KHtIKSUa52Y)
-93. [Мой распорядок дня. Утренняя активность, выработка привычки. | Denis Semenikhin](https://www.youtube.com/watch?v=T08FtgSRhLU)
+91. 
 94. [КАМБОДЖА БЕЗ АНГКОР ВАТА / камбоджийки, Пол Пот, Сиемрип | ПЛАНЕТКА](https://www.youtube.com/watch?v=qLPCCj6dS_o)
 95. [Evolution of German Aircraft | Animated History | The Armchair Historian](https://www.youtube.com/watch?v=V6YP42xzDAg)
 96. [Ассирия - первая империя в истории (Redroom) | Redroom](https://www.youtube.com/watch?v=xrc3G8eAHkM)
