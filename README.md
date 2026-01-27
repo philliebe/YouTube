@@ -1,6 +1,7 @@
 # YouTube
 Описываю, что в видео было полезного и интересного
 
+
 ## Саморазвитие
 1. [The 2 Minute Rule Will Quickly Change Your Life – James Clear | FightMediocrity](https://www.youtube.com/watch?v=HM7dgEF8H60)
 2. [Работай 1 минуту после пробуждения [Исследование]: | АРСЕНИЙ СЛОН](https://www.youtube.com/watch?v=kP08Qa7JJHM)
@@ -16,15 +17,22 @@
 12. [Как справляться с неудачами - история Квентина Тарантино | Роберт Родригес | Лекс Фридман на Русском](https://www.youtube.com/watch?v=2-PyCYiz3lk)
 13. [ИГОРЬ ВОЙТЕНКО НАУЧИТ ТЕБЯ ЖИЗНИ | RYTP | Лох тв...](https://www.youtube.com/watch?v=0VfqXP23mlk)
 14. [Психология Людей которые Не Отмечают Свой День Рождения | Выход из Тьмы ](https://www.youtube.com/watch?v=OnXOAgwaAao)
-15. 
+15. [Ловушка коротких видео. Как вы отдаете самое ценное | Простая экономика](https://www.youtube.com/watch?v=yQebXIkBAws)
+16. [Время. Как мы с ним обращаемся | Denis Semenikhin](https://www.youtube.com/watch?v=uOKs1Fv7M4A)
+17. [Медленная жизнь эффективнее суетной жизни (развитие темы медленного движения) | психолог Сергей Кравченко](https://www.youtube.com/watch?v=rCjF8Bdj0AA)
+18. 
+
 
 ## Музыка
 1. 
+2. 
+
 
 ## Голос
 1. [Как сделать голос ниже и увереннее. 5 минут в день! | Кирилл Плешаков-Качалин](https://www.youtube.com/watch?v=U6cPnNfhkpQ)
 2. 
 3. 
+
 
 ## Рецепты
 ### Голодный Мужчина
@@ -51,6 +59,7 @@
 2. [Любимая еда моего мужа! Быстрый и легкий рецепт на ужин из куриной грудки | LanaAppetitovna](https://www.youtube.com/watch?v=OjdZb6VBb9o)
 3. [Рис с яйцами лучше пиццы! Готовлю его почти каждый день! | Просто и вкусно](https://www.youtube.com/watch?v=tNlLMO-9JOY)
 4. [](url)
+
 
 ## Здоровье
 ### Дикий Лось
@@ -84,16 +93,19 @@
 7. [НАЧИНАЙ УТРО С ЭТОГО!!! | Ivan Krasavin](https://www.youtube.com/watch?v=JJYZd6IabFs)
 8. 
 
+
 ## Вождение
 1. [Какой момент за рулём бесит больше всего? | 알룔료](https://www.youtube.com/watch?v=gHX9o0x1Bs8)
 2. [Как трогаться на механике обучение за 2 минуты! Легко и быстро | Алексей Здравый](https://www.youtube.com/watch?v=xbkbcPtKu_8)
 3. [Немного водительской мудрости. Главное правило водителя. | Quiring](https://www.youtube.com/watch?v=maNVVaxCs-A)
 4. 
 
+
 ## История
 1. [Клим Жуков. Спецоперация в Ливонии 1558-1583: невыученный урок истории | Клим Жуков](https://www.youtube.com/watch?v=0j5hx3GQJbM)
 2. [Шумеры: история первой цивилизации за 20 минут | Охта Студия](https://www.youtube.com/watch?v=UydIPVDlZIY)
 3. 
+
 
 ## Английский
 1. [Английский на слух по интервью | Илон Маск | Онлайн-школа «Инглекс» | Инглекс](https://www.youtube.com/watch?v=K7fTa_EHoBw)
@@ -104,6 +116,7 @@
 6. [Реально ли выучить АНГЛИЙСКИЙ ПО ПЕСНЯМ? Сел и разобрал парочку | Virginia Beowulf | Virginia Bēowulf · English Studies](https://www.youtube.com/watch?v=CehSEknSOpk)
 4. 
 
+
 ## Строительство дома
 1. [ВЕСЬ ПРОЦЕСС СТРОИТЕЛЬСТВА ЗА 20 МИН / КАК ПОСТРОИТЬ ДОМ НЕДОРОГО СВОИМИ РУКАМИ #какпостроитьдом | Город Возможностей](https://www.youtube.com/watch?v=tdLt62UsaFI)
 2. [Умный дом за 1500 рублей | Артем Матяшов](https://www.youtube.com/watch?v=SKBjRRWFEOw)
@@ -113,6 +126,7 @@
 6. [Выпуск№25. РАСХОДЫ НА ОБСЛУЖИВАНИЕ ЧАСТНОГО ДОМА#домсвоимируками #домвдеревне #своимируками | Дом по цене ОДНУШКИ](https://www.youtube.com/watch?v=3Um8dSVC0dY)
 7. [ДОМ 60 М/2 за 50 ДНЕЙ СКОЛЬКО СТОИТ ??? КАК ПОСТРОИТЬ ДОМ СВОИМИ РУКАМИ НЕ ДОРОГО ИЗ ГАЗОБЕТОНА | Город Возможностей](https://www.youtube.com/watch?v=vVAJVr87RVA)
 8. 
+
 
 ## Покупка авто
 ### Игорь Малышев - Автоподбор
@@ -127,12 +141,14 @@
 1. [The XC70 is the ultimate Volvo Estate (Station Wagon) | JJ on Cars](https://www.youtube.com/watch?v=-aiqcTpHmgQ)
 2. 
 
+
 ## Финансы
 1. [Думаете, что покупаете БЕСПЛАТНО? Как на самом деле работает оплата частями (Сплит, Подели, Долями) | Т—Ж](https://www.youtube.com/watch?v=UmpbpacQ2ho)
 2. [80133р за МЕСЯЦ. Пассивный ДОХОД 2026. Без курсов и инфоцыган. Финансовая грамотность | Коротко и внятно](https://www.youtube.com/watch?v=Msm5NbBz5ts)
 3. [Как кредиты стали нормой | Т—Ж](https://www.youtube.com/watch?v=MFEUEOf5rBY)
 4. [Деньги. Мой путь ошибок, осознаний и выводов. | Denis Semenikhin](https://www.youtube.com/watch?v=_Ydca9vuznI)
 5. 
+
 
 ## Путешествия
 1. [Сколько же это стоило? Ответы на вопросы о поездке на Байкал. | Дачный Бич](https://www.youtube.com/watch?v=v76o0tcwLvs)
@@ -141,16 +157,26 @@
 4. 
 
 
+## Подкасты
+1. [GAYAZOV$ BROTHER$ - Про Малиновую Ладу, фейковый голос и конкуренцию / Опять не Гальцев | Плюшки](https://www.youtube.com/watch?v=I-MGg-Gr7_g)
+2. 
+
+
 ## Разное
 ### Про авто
 1. [«Буханке» за 1,6 млн рублей. Продавец попросил не смеяться, ведь «Буханку» собирают по технологии | Китайский -Машина](https://www.youtube.com/watch?v=uivzmtMt9as)
 2. [Дань уважения VOLVO 850 | VOLLUX /// Автосервис автомобилей VOLVO & GEELY](https://www.youtube.com/watch?v=K962KArTJqQ)
 3. [ЖЕСКИЕ ШАШКИ НА ГЕЛИКЕ / MERC G63 ПО МОСКВЕ | Антагонист](https://www.youtube.com/watch?v=LslIYjzSPIc)
+4. [[Эксклюзив]Реклама Лада Нива 4х4 в Боливии, дубляж на русском языке | 4x4 NIVA-TV](https://www.youtube.com/watch?v=gSmUSCZAkhk)
+5. [История одной НИВЫ. Рассказ ДЕВУШКИ о её машине. | Дачный Бич](https://www.youtube.com/watch?v=kgKd866nCvU)
+6. 
 
 #### Асафьев Стас
 1. [ПРЕСТУПЛЕНИЕ, которое ПОТРЯСЛО автомобильный МИР](https://www.youtube.com/watch?v=7N0C8jH-utE)
 2. [ПОЧЕМУ происходят ДТП и как от них ИЗБАВИТЬСЯ?](https://www.youtube.com/watch?v=mQiS21hIC0w)
 3. [Все, что вы СТЕСНЯЛИСЬ спросить про АВТОМОБИЛИ](https://www.youtube.com/watch?v=35-8p3Jy9EE)
+4. [Как появились ГИГАНТЫ ФРАНЦИИ. Противостояние Титанов](https://www.youtube.com/watch?v=Kji4PvHwYso)
+5. [Вот ВО ЧТО ПРЕВРАЩАЮТСЯ КИТАЙЦЫ с пробегом. Обзор Б/У Chery Tiggo 7 Pro.](https://www.youtube.com/watch?v=6uvwMZ6LrMk)
 
 ### Про самолёты
 1. [ПО 2 Самолет-легенда. Обзор и рассказ пилота | Авиапарк Орешково](https://www.youtube.com/watch?v=RTshwW8a6m4)
@@ -193,17 +219,16 @@
 4. [Презентация книги "Ареал. Что Посеешь" - Сергей Тармашев - 17.12.2016 | Миры и войны Сергея Тармашева](https://www.youtube.com/watch?v=v5qXNfa3m54)
 5. 
 6. [Готовлю два раза в день. Ужин за 100 рублей. Секрет в банке | Шеф-повар Василий Емельяненко](https://www.youtube.com/watch?v=bAUSqijoEag)
-8. [[Эксклюзив]Реклама Лада Нива 4х4 в Боливии, дубляж на русском языке | 4x4 NIVA-TV](https://www.youtube.com/watch?v=gSmUSCZAkhk)
+8. 
 9. [ТАКСИ 1? ФРАНЦУЖЕНКА ВСЁ ОБЪЯСНИТ! | Леа Камомий](https://www.youtube.com/watch?v=UwZJ6iyGdxk)
-10. [Ловушка коротких видео. Как вы отдаете самое ценное | Простая экономика](https://www.youtube.com/watch?v=yQebXIkBAws)
+10. 
 11. [«Осень». Самая большая загадка Windows XP | Девять десятых](https://www.youtube.com/watch?v=VjHJFTyQw_A)
 12. [Благодарю за внимание. Они сражались за Родину | Киноконцерн "Мосфильм"](https://www.youtube.com/watch?v=DxbPzVqjcNc)
 13. [Секреты памяти в IT: Забудь о забывчивости... | IT-Свободный Программист](https://www.youtube.com/watch?v=sSpAommfDzU)
 15. [Простой способ находить аккорды [НЕ дворовая гитара] | Нескучный Саунд](https://www.youtube.com/watch?v=bI4c77HikC0)
-16. [Время. Как мы с ним обращаемся | Denis Semenikhin](https://www.youtube.com/watch?v=uOKs1Fv7M4A)
-17. [Медленная жизнь эффективнее суетной жизни (развитие темы медленного движения) | психолог Сергей Кравченко](https://www.youtube.com/watch?v=rCjF8Bdj0AA)
+16. 
 18. [Ейск/Жизнь на юге ПЛЮСЫ и МИНУСЫ/Почему я уезжаю. | Переезд на юг. Жизнь у моря🌊](https://www.youtube.com/watch?v=0Xj0zUBkstM)
-19. [История одной НИВЫ. Рассказ ДЕВУШКИ о её машине. | Дачный Бич](https://www.youtube.com/watch?v=kgKd866nCvU)
+19. 
 20. 
 22. [5 Горьких ФАКТОВ о девушках которые я ХОТЕЛ БЫ ЗНАТЬ в 20 лет. | Коуч Джордж](https://www.youtube.com/watch?v=SVx6cYdqn2o)
 26. [Жорик Ревазов "Потреблядство" | PTH PHX](https://www.youtube.com/watch?v=_Cwq8tK0Xx8)
@@ -212,7 +237,7 @@
 29. [Мастерская. Ремонт звука в консоли "9999 in 1 Tetris" | IVANOFF_LIVE](https://www.youtube.com/watch?v=bgCyC2HEt1c)
 30. [✅Тетрис. Восстановление токопроводящей резины. Чистка пластика меламиновой губкой из FixPrice. | Zloy Elvis](https://www.youtube.com/watch?v=oKVcJCgqyOs)
 31. [Играть в тетрис как в 90-е - Simba's Brick Game | Проявляй Эмоции](https://www.youtube.com/watch?v=4CiRxu9-Bv0)
-32. [GAYAZOV$ BROTHER$ - Про Малиновую Ладу, фейковый голос и конкуренцию / Опять не Гальцев | Плюшки](https://www.youtube.com/watch?v=I-MGg-Gr7_g)
+32. 
 33. [Полная запись переговоров на ЧАЭС в ночь 26 апреля 1986 года. Уникальная запись! | Bogdan](https://www.youtube.com/watch?v=-9Gi890VQ40)
 34. [Запрещенные и замалчиваемые знания. Неволина Н.А. | 4istit](https://www.youtube.com/watch?v=CdWrYrwU36c)
 35. [Самолёт по дешману 2 #12 Финальные испытания | Скифовский](https://www.youtube.com/watch?v=2VCMXGRgCIU)
@@ -425,7 +450,7 @@
 253. [Сборник анекдотов Юрия Никулина | Советский юмор](https://www.youtube.com/watch?v=My8UI4diK4Q)
 254. [5 спорных вопросов в питании. | flynutrition](https://www.youtube.com/watch?v=AVjIfKM_jgE)
 255. [Я жалею, что Допускал эти Ошибки в свои 20 лет... | Томас Франк](https://www.youtube.com/watch?v=_U9-dgPzaGs)
-256. [Как появились ГИГАНТЫ ФРАНЦИИ. Противостояние Титанов | Асафьев Стас](https://www.youtube.com/watch?v=Kji4PvHwYso)
+256. 
 257. [Мог ли Ницше вдохновить фашизм? Сверхчеловек, Дионис и Антихрист | Правое полушарие Интроверта](https://www.youtube.com/watch?v=QZp6b7aBiNk)
 258. [Меняем пространство и время местами | foo52ru ТехноШаман](https://www.youtube.com/watch?v=n4tbdFD18vs)
 259. [Стоимость обучения на планере и самолете. Программы, лицензии, возможности | Мечта Летать](https://www.youtube.com/watch?v=h83gL2O7Zmw)
@@ -622,7 +647,7 @@
 457. [Как по-настоящему понять «Сталкер» Тарковского | Кинопоиск](https://www.youtube.com/watch?v=FU-Cgl6a_uo)
 458. [Не совершай эти ошибки со своим ЧЛЕНОМ! | Уролог Наумов](https://www.youtube.com/watch?v=H_QhsvXtD6s)
 459. [2026 г. Пуск последнего вертолёта из СССР (Ми-6) | Музей Вертолетов](https://www.youtube.com/watch?v=-ezM-sV2H2w)
-460. [Вот ВО ЧТО ПРЕВРАЩАЮТСЯ КИТАЙЦЫ с пробегом. Обзор Б/У Chery Tiggo 7 Pro. | Асафьев Стас](https://www.youtube.com/watch?v=6uvwMZ6LrMk)
+460. 
 461. [ПОЕЗДКА В ПЕРМЬ НА ЛАДЕ ГРАНТА /ВЛОГ ОДНОГО ДНЯ | ДНЕВНИК ПСИХОЛОГА ДЕНЧИКА](https://www.youtube.com/watch?v=ACJ0pV080mk)
 462. [Как тратят и зарабатывают зумеры и миллениалы: кто живет с кредитами, но уже копит на квартиру | Т—Ж](https://www.youtube.com/watch?v=hz2ZILQNwsA)
 463. [100% способ, от которого кончит каждая/ Как устроен женский оргазм? | Темная комната](https://www.youtube.com/watch?v=wCUMZInNgbM)
