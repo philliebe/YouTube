@@ -21,7 +21,10 @@
 16. [Как ПРАВИЛЬНО точить ножи. Северная Осетия. | Алексей Усов](https://www.youtube.com/watch?v=MGEpbvqP9nE)
 17. [Fall Asleep in 3-4 Minutes...Sounds Like a Dream! Dr. Mandell | motivationaldoc](https://www.youtube.com/watch?v=tvNARxpNDrA)
 18. [Медленная жизнь эффективнее суетной жизни (развитие темы медленного движения) | психолог Сергей Кравченко](https://www.youtube.com/watch?v=rCjF8Bdj0AA)
-19. 
+19. [Почему "скучная" жизнь — главный секрет успеха? | Дмитрий Смирнов | Инвестиции](https://www.youtube.com/watch?v=SNVMzh7ZKbI)
+20. [Жириновский - сильнейшая мотивация (Для фильма Москва-Питер.В поисках счастья) | SuperEgokino](https://www.youtube.com/watch?v=cnvOXx6XTak)
+21. [Как желание жить комфортно делает нас беднее и несчастнее | Т—Ж](https://www.youtube.com/watch?v=K8P-Yp1I5kI)
+22. 
 
 ### Denis Semenikhin
 1. [Мой распорядок дня. Утренняя активность, выработка привычки.](https://www.youtube.com/watch?v=T08FtgSRhLU)
@@ -716,9 +719,7 @@
 466. [Как продлить свой секс, без таблеток и уколов ? Секретные техники из порно | Темная комната](https://www.youtube.com/watch?v=bwma4KA6hTA)
 467. [Порнозависимость/ Что происходит с твоим мозгом без порно? | Темная комната](https://www.youtube.com/watch?v=iOcW-_2C_o0)
 468. [От ЭТОЙ мышцы зависит ВСЕ! Недержание мочи, выпирающий живот и боль в пояснице! | Клиника Доктора Длина](https://www.youtube.com/watch?v=xrMA4Rvkfjg)
-469. [Почему "скучная" жизнь — главный секрет успеха? | Дмитрий Смирнов | Инвестиции](https://www.youtube.com/watch?v=SNVMzh7ZKbI)
-470. [Жириновский - сильнейшая мотивация (Для фильма Москва-Питер.В поисках счастья) | SuperEgokino](https://www.youtube.com/watch?v=cnvOXx6XTak)
-471. [Как желание жить комфортно делает нас беднее и несчастнее | Т—Ж](https://www.youtube.com/watch?v=K8P-Yp1I5kI)
+469. 
 472. [ВССК Выхлоп | Канал Правда Жизни](https://www.youtube.com/watch?v=NzGaLJHv-NU)
 473. [Какие Отзывы Получили КВ-2 В Зимней Войне Против Финнов? | Diodand](https://www.youtube.com/watch?v=lo64jLTABYc)
 474. [Мемуары Лётчика СССР Об Испытаниях Трофейного Me.262. Аудиокнига | Diodand](https://www.youtube.com/watch?v=7JYYlhcmE6I)
